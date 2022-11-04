@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-04 | [Representación de deidades de la Tumba de Tutankamón en el Museo Egipcio, El Cairo, Egipto (© Stefan Lippmann/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.Deities_ES-ES3449987964_UHD.jpg) 
+
 2022-11-01 | [Esqueletos (calacas) vestidos para las celebraciones del Día de los Muertos en México (© Amelia Fuentes Marin/Getty Images)](https://global.bing.com/th?id=OHR.Calacas_ES-ES0332786536_UHD.jpg) 
 
 2022-10-28 | [Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) 
