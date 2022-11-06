@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-06 | [Corredores de maratón cruzando el puente Verrazano-Narrows, Nueva York, Estados Unidos (© David Madison/Getty Images)](https://global.bing.com/th?id=OHR.MarathonSunday_ES-ES4523931233_UHD.jpg) 
+
 2022-11-05 | [Tigh Mor Trossachs de Loch Achray, Escocia (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_ES-ES3779043674_UHD.jpg) 
 
 2022-11-04 | [Representación de deidades de la Tumba de Tutankamón en el Museo Egipcio, El Cairo, Egipto (© Stefan Lippmann/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.Deities_ES-ES3449987964_UHD.jpg) 
