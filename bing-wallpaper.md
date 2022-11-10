@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-10 | [Formaciones rocosas en el ParqueNacional Badlands durante una tormenta eléctrica, Dakota del Sur, Estados Unidos (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_ES-ES5423123691_UHD.jpg) 
+
 2022-11-09 | [Erizo europeo en Sussex, Inglaterra (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_ES-ES5176501837_UHD.jpg) 
 
 2022-11-08 | [Las linternas del cielo toman vuelo durante el festival Yi Peng en Chiang Mai, Tailandia (© Suttipong Sutiratanachai/Getty Images)](https://global.bing.com/th?id=OHR.YiPeng_ES-ES5003418699_UHD.jpg) 
