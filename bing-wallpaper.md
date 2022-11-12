@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-12 | [Grupo de águilas calvas cerca de Haines, Alaska, Estados Unidos (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_ES-ES5791734070_UHD.jpg) 
+
 2022-11-11 | [Castañas dentro de sus cáscaras (© Kai Keisuke/Shutterstock)](https://global.bing.com/th?id=OHR.EsskastanieD_ES-ES7556753610_UHD.jpg) 
 
 2022-11-10 | [Formaciones rocosas en el ParqueNacional Badlands durante una tormenta eléctrica, Dakota del Sur, Estados Unidos (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_ES-ES5423123691_UHD.jpg) 
