@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-14 | [Ruinas del castillo medieval de los Caballeros de San Juan sobre el pueblo de Chorio, isla de Halki, Grecia (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_ES-ES6538773208_UHD.jpg) 
+
 2022-11-13 | [Patio de las Doncellas, Alcázar de Sevilla, España (© Danny Lehman/Getty Images)](https://global.bing.com/th?id=OHR.SevilleCourtyard_ES-ES5929392335_UHD.jpg) 
 
 2022-11-12 | [Grupo de águilas calvas cerca de Haines, Alaska, Estados Unidos (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_ES-ES5791734070_UHD.jpg) 
