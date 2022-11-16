@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-16 | [Viviendas Cliff en el Parque Nacional de Mesa Verde en Colorado, Estados Unidos (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_ES-ES6867342316_UHD.jpg) 
+
 2022-11-15 | [Nutrias de río norteamericanas nadando en el Parque Nacional Acadia, Maine, Estados Unidos (© George Sanker/Minden Pictures)](https://global.bing.com/th?id=OHR.LontraCanadensis_ES-ES6701727095_UHD.jpg) 
 
 2022-11-14 | [Ruinas del castillo medieval de los Caballeros de San Juan sobre el pueblo de Chorio, isla de Halki, Grecia (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_ES-ES6538773208_UHD.jpg) 
