@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-17 | [Puente sobre el sendero rio McKenzie, el Bosque Nacional de Willamette, Oregón, Estados Unidos (© Don Paulson/Danita Delimont)](https://global.bing.com/th?id=OHR.McKenzieRiverTrail_ES-ES7180438865_UHD.jpg) 
+
 2022-11-16 | [Viviendas Cliff en el Parque Nacional de Mesa Verde en Colorado, Estados Unidos (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_ES-ES6867342316_UHD.jpg) 
 
 2022-11-15 | [Nutrias de río norteamericanas nadando en el Parque Nacional Acadia, Maine, Estados Unidos (© George Sanker/Minden Pictures)](https://global.bing.com/th?id=OHR.LontraCanadensis_ES-ES6701727095_UHD.jpg) 
