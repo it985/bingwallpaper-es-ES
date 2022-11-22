@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-22 | [Zorro rojo en la Reserva Natural Amsterdams Waterleidingduin en los Países Bajos (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_ES-ES9087093399_UHD.jpg) 
+
 2022-11-21 | [Estadio Ahmad Bin Ali en Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)](https://global.bing.com/th?id=OHR.FIFA2022_ES-ES2169980032_UHD.jpg) 
 
 2022-11-20 | [Pintura Land Art titulada 'Mundo en Progreso II' del artista Saype en la Sede de las Naciones Unidas en la Ciudad de Nueva York, Estados Unidos (© Valentin Flauraud/Shutterstock)](https://global.bing.com/th?id=OHR.LandartPainting_ES-ES3040827938_UHD.jpg) 
