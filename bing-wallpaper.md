@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-24 | [Vista desde la montaña Kampenwand, Aschau im Chiemgau, Baviera, Alemania (© Toni Anzenberger/plainpicture)](https://global.bing.com/th?id=OHR.AschauChiemgau_ES-ES1671852882_UHD.jpg) 
+
 2022-11-23 | [Girsol (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_ES-ES0415542919_UHD.jpg) 
 
 2022-11-22 | [Zorro rojo en la Reserva Natural Amsterdams Waterleidingduin en los Países Bajos (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_ES-ES9087093399_UHD.jpg) 
