@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-25 | [El pueblo de Turena en la cima de una colina al amanecer en Corrèze, Nouvelle-Aquitaine, Francia (© Tim Mannakee/plainpicture)](https://global.bing.com/th?id=OHR.TurenneSunrise_ES-ES3486905470_UHD.jpg) 
+
 2022-11-24 | [Vista desde la montaña Kampenwand, Aschau im Chiemgau, Baviera, Alemania (© Toni Anzenberger/plainpicture)](https://global.bing.com/th?id=OHR.AschauChiemgau_ES-ES1671852882_UHD.jpg) 
 
 2022-11-23 | [Girsol (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_ES-ES0415542919_UHD.jpg) 
