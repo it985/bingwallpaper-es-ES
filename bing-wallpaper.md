@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-02 | [Delta del río Tlikakila en el Parque Nacional Lake Clark, Alaska, Estados Unidos (© Dawn Wilson Photography/Getty Images)](https://global.bing.com/th?id=OHR.BraidedRiverDelta_ES-ES0904432715_UHD.jpg) 
+
 2022-11-27 | [Hoja de Cecropia encima de pétalos de pinza de langosta, México (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_ES-ES8842288620_UHD.jpg) 
 
 2022-11-26 | [Un olivo frente a un Templo de la Concordia en la isla de Sicilia, Italia (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_ES-ES5521438262_UHD.jpg) 
