@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-08 | [Catedral de Florencia, Italia (© Alexander Baert/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.FlorenceAerial_ES-ES2499177195_UHD.jpg) 
+
 2022-12-04 | [Elefantes cerca del Monte Kilimanjaro, Parque Nacional Amboseli, Kenia (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_ES-ES2070951469_UHD.jpg) 
 
 2022-12-03 | [Ocean Drive, Miami Beach, Florida, Estados Unidos (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_ES-ES6643861593_UHD.jpg) 
