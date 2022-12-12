@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-12 | [Planta de nochebuena (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_ES-ES4711115538_UHD.jpg) 
+
 2022-12-11 | [Vista desde la cumbre de la montaña Roßstein, Baviera, Alemania (© Christian Bäck/eStock Photo)](https://global.bing.com/th?id=OHR.BuchsteinRossstein_ES-ES4202606737_UHD.jpg) 
 
 2022-12-10 | [Salar de Uyuni en Bolivia (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_ES-ES3305729469_UHD.jpg) 
