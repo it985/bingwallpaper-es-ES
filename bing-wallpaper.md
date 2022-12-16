@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-16 | [Luces navideñas en el Jardín Botánico de Atlanta en Georgia, Estados Unidos (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_ES-ES3569285522_UHD.jpg) 
+
 2022-12-15 | [Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_ES-ES6258199068_UHD.jpg) 
 
 2022-12-14 | [: Lago Agnel y lago Serrù, Parque Nacional Gran Paradiso, Piamonte, Italia (© agustavop/Getty Images)](https://global.bing.com/th?id=OHR.GranParadiso100th_ES-ES6106804343_UHD.jpg) 
