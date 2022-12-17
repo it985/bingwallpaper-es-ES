@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-17 | [Cabras montesas en el Parque Nacional Glacier en Montana, Estados Unidos (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_ES-ES4078717815_UHD.jpg) 
+
 2022-12-16 | [Luces navideñas en el Jardín Botánico de Atlanta en Georgia, Estados Unidos (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_ES-ES3569285522_UHD.jpg) 
 
 2022-12-15 | [Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_ES-ES6258199068_UHD.jpg) 
