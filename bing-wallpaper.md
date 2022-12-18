@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-18 | [South Beach en Miami, Florida, Estados Unidos (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_ES-ES4553676114_UHD.jpg) 
+
 2022-12-17 | [Cabras montesas en el Parque Nacional Glacier en Montana, Estados Unidos (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_ES-ES4078717815_UHD.jpg) 
 
 2022-12-16 | [Luces navideñas en el Jardín Botánico de Atlanta en Georgia, Estados Unidos (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_ES-ES3569285522_UHD.jpg) 
