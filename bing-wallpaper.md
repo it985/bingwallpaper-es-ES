@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-19 | [Un cardenal del norte posado en un arbusto común de bayas de invierno en el condado de Marion, Illinois, Estados Unidos (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_ES-ES4974421640_UHD.jpg) 
+
 2022-12-18 | [South Beach en Miami, Florida, Estados Unidos (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_ES-ES4553676114_UHD.jpg) 
 
 2022-12-17 | [Cabras montesas en el Parque Nacional Glacier en Montana, Estados Unidos (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_ES-ES4078717815_UHD.jpg) 
