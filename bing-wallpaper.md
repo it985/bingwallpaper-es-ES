@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-23 | [Pingüinos papúa en la Antártida (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_ES-ES7228528863_UHD.jpg) 
+
 2022-12-22 | [Árbol de Navidad de las Galerías Lafayette en París, Francia (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_ES-ES6307542465_UHD.jpg) 
 
 2022-12-21 | [Halo de sol sobre el lago Antermoia en las montañas Dolomitas de Italia (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_ES-ES5785722948_UHD.jpg) 
