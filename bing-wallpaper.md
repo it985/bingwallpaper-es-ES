@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-25 | [Escena de vacaciones en miniatura en Estrasburgo, Francia (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_ES-ES8643575572_UHD.jpg) 
+
 2022-12-24 | [Amalga Harbor, Alaska (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_ES-ES7791363224_UHD.jpg) 
 
 2022-12-23 | [Pingüinos papúa en la Antártida (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_ES-ES7228528863_UHD.jpg) 
