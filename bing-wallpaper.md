@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-27 | [Laguna Azul, Grindavik, Islandia (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.BlueLagoon_ES-ES9544987436_UHD.jpg) 
+
 2022-12-26 | [Beverley Westwood Common, East Yorkshire, Inglaterra (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_ES-ES9069031217_UHD.jpg) 
 
 2022-12-25 | [Escena de vacaciones en miniatura en Estrasburgo, Francia (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_ES-ES8643575572_UHD.jpg) 
