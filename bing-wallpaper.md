@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-31 | [Fuegos artificiales de Nochevieja, Sydney Harbour Bridge en Sídney, Australia (© Wendell Teodoro/Getty Images)](https://global.bing.com/th?id=OHR.SydneyNYE_ES-ES6840908989_UHD.jpg) 
+
 2022-12-30 | [Formaciones rocosas en el Desierto Blanco, Egipto (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.ChalkRock_ES-ES6427358574_UHD.jpg) 
 
 2022-12-29 | [Un par de mariposas azules tachonadas de plata  (© Misja Smits/Minden Pictures)](https://global.bing.com/th?id=OHR.ButterflyEffect_ES-ES0169955437_UHD.jpg) 
