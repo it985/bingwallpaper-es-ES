@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-03 | [Grullas grises, Refugio Nacional de Vida Silvestre Bosque del Apache, Nuevo México (© Jay Goodrich/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SandhillSleeping_ES-ES7561503861_UHD.jpg) 
+
 2023-01-02 | [Hohenzollern, Alemania (© Sahara Prince/Shutterstock)](https://global.bing.com/th?id=OHR.HohenzollernBurg_ES-ES7429564998_UHD.jpg) 
 
 2023-01-01 | [Oso polar Svalbard, Noruega  (© Dennis Stogsdill/Getty Images)](https://global.bing.com/th?id=OHR.NorwayNYD_ES-ES7256625259_UHD.jpg) 
