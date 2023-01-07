@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-07 | [Hilo de lana y mohair  (© Jurate Buiviene/Alamy)](https://global.bing.com/th?id=OHR.Mohair_ES-ES8261142242_UHD.jpg) 
+
 2023-01-06 | [Black Fell, Distrito de los Lagos, Inglaterra (© Daniel Kay/Shutterstock)](https://global.bing.com/th?id=OHR.BlackFell_ES-ES8128978565_UHD.jpg) 
 
 2023-01-05 | [Festival Internacional de Esculturas de Hielo y Nieve de Harbin, Harbin, China  (© STR/AFP via Getty Images)](https://global.bing.com/th?id=OHR.HIISSF_ES-ES7972659269_UHD.jpg) 
