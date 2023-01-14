@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-14 | [Burro doméstico alimentándose de ramitas de cerezo (© Juniors Bildarchiv GmbH/Alamy)](https://global.bing.com/th?id=OHR.DonkeyFeast_ES-ES5968870196_UHD.jpg) 
+
 2023-01-13 | [Algas gigantes en el Santuario Marino Nacional de Islas del Canal, California, EE.UU. (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_ES-ES8928994453_UHD.jpg) 
 
 2023-01-12 | [Rumelihisarı en el Estrecho del Bósforo en Estambul, Turquía (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_ES-ES3646246253_UHD.jpg) 
