@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-17 | [Parque Natural de Muniellos en Asturias, España (© Andres M. Dominguez/Minden Pictures)](https://global.bing.com/th?id=OHR.SessileOaks_ES-ES6256754284_UHD.jpg) 
+
 2023-01-16 | [Monte Michener y lago Abraham congelado en Alberta, Canadá (© Tom Mackie/plainpicture)](https://global.bing.com/th?id=OHR.FrozenBubblesAlberta_ES-ES7458399368_UHD.jpg) 
 
 2023-01-15 | [Río Aura en Turku, Finlandia (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_ES-ES4158188395_UHD.jpg) 
