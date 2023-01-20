@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-20 | [Pingüinos Rey en las Islas Malvinas (© Elmar Weiss/Getty Images)](https://global.bing.com/th?id=OHR.FalklandKings_ES-ES2342581734_UHD.jpg) 
+
 2023-01-19 | [Park City, Utah, EE.UU. (© Kruck20/Getty Images)](https://global.bing.com/th?id=OHR.SFFParkCity_ES-ES1940234860_UHD.jpg) 
 
 2023-01-18 | [Parque Nacional de White Sands, Nuevo México, EE.UU. (© Andrea Harrell/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WhiteSands_ES-ES7480261868_UHD.jpg) 
