@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-23 | [Estatua Moais en la Isla de Pascua, Chile (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_ES-ES2934763520_UHD.jpg) 
+
 2023-01-22 | [Liebre de montaña en Derbyshire, Inglaterra (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_ES-ES2823200273_UHD.jpg) 
 
 2023-01-21 | [Madre y cría de Canguro (© Belle Ciezak/Shutterstock)](https://global.bing.com/th?id=OHR.HuggingKanga_ES-ES2659139349_UHD.jpg) 
