@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-24 | [Colle Santa Lucia en los Dolomitas, Italia (© mauritius images GmbH/Alamy)](https://global.bing.com/th?id=OHR.ColleSantaLucia_ES-ES3051228643_UHD.jpg) 
+
 2023-01-23 | [Estatua Moais en la Isla de Pascua, Chile (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_ES-ES2934763520_UHD.jpg) 
 
 2023-01-22 | [Liebre de montaña en Derbyshire, Inglaterra (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_ES-ES2823200273_UHD.jpg) 
