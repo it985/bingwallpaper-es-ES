@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-29 | [Mirlo en Essex, Inglaterra (© Bill Coster/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.BlackbirdDay_ES-ES2087025609_UHD.jpg) 
+
 2023-01-28 | [Aguas azul-verdosas alrededor de las Bahamas vistas desde la Estación Espacial Internacional  (© NASA)](https://global.bing.com/th?id=OHR.BlueBahamas_ES-ES1742427274_UHD.jpg) 
 
 2023-01-27 | [Manglar rojo en el Parque Nacional Guanahacabibes, Cuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_ES-ES1611626145_UHD.jpg) 
