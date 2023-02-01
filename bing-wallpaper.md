@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-01 | [Olivos centenarios en Deyá, Islas Baleares, España (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SpainOlive_ES-ES8566663896_UHD.jpg) 
+
 2023-01-31 | [Cebras de Burchell Reserva Natural de Rietvlei, Sudáfrica (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraTrio_ES-ES2489777747_UHD.jpg) 
 
 2023-01-30 | [Campeonato Europeo de Vela sobre hielo y nieve en el Lago Balaton en Hungría (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IceSailingBalaton_ES-ES2212087209_UHD.jpg) 
