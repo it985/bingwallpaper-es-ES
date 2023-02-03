@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-03 | [Chateau Frontenac, Ciudad de Quebec, Canadá (© Romiana Lee/Shutterstock)](https://global.bing.com/th?id=OHR.QuebecFrontenac_ES-ES2773167504_UHD.jpg) 
+
 2023-02-02 | [Marmotas alpinas en el Parque Nacional Hohe Tauern, Austria (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_ES-ES2648264092_UHD.jpg) 
 
 2023-02-01 | [Olivos centenarios en Deyá, Islas Baleares, España (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SpainOlive_ES-ES8566663896_UHD.jpg) 
