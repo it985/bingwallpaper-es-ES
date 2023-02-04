@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-04 | [Perdices Rojas en la Sierra de Andujar, España (© Andres M. Dominguez/Minden)](https://global.bing.com/th?id=OHR.Alectorisrufa_ES-ES7873431973_UHD.jpg) 
+
 2023-02-03 | [Chateau Frontenac, Ciudad de Quebec, Canadá (© Romiana Lee/Shutterstock)](https://global.bing.com/th?id=OHR.QuebecFrontenac_ES-ES2773167504_UHD.jpg) 
 
 2023-02-02 | [Marmotas alpinas en el Parque Nacional Hohe Tauern, Austria (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_ES-ES2648264092_UHD.jpg) 
