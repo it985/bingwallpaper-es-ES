@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-05 | [Mariposas monarca en Pismo Beach, California, EE.UU. (© Mimi Ditchie/Getty Images)](https://global.bing.com/th?id=OHR.MonarchPismo_ES-ES3099060841_UHD.jpg) 
+
 2023-02-04 | [Perdices Rojas en la Sierra de Andujar, España (© Andres M. Dominguez/Minden)](https://global.bing.com/th?id=OHR.Alectorisrufa_ES-ES7873431973_UHD.jpg) 
 
 2023-02-03 | [Chateau Frontenac, Ciudad de Quebec, Canadá (© Romiana Lee/Shutterstock)](https://global.bing.com/th?id=OHR.QuebecFrontenac_ES-ES2773167504_UHD.jpg) 
