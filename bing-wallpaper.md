@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-08 | [Área de descanso de Ureddplassen en la Ruta Escénica Noruega Helgelandskysten, Noruega (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_ES-ES3512318365_UHD.jpg) 
+
 2023-02-07 | [Pueblo de Labro, Provincia de Rieti, Italia (© Marco Ilari/Shutterstock)](https://global.bing.com/th?id=OHR.MedievalLabro_ES-ES3364596747_UHD.jpg) 
 
 2023-02-06 | [Parque Nacional de Fiordland, Isla Sur, Nueva Zelanda (© WitR/Adobe Stock)](https://global.bing.com/th?id=OHR.WaitangiFjordlandNP_ES-ES3226283452_UHD.jpg) 
