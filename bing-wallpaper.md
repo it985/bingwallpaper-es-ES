@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-10 | [Antiguo Teatro de Epidauro en la provincia de Argólida, Grecia (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_ES-ES4124175062_UHD.jpg) 
+
 2023-02-09 | [Bajo Cañón del Antílope en Arizona, EE.UU. (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_ES-ES0536302505_UHD.jpg) 
 
 2023-02-08 | [Área de descanso de Ureddplassen en la Ruta Escénica Noruega Helgelandskysten, Noruega (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_ES-ES3512318365_UHD.jpg) 
