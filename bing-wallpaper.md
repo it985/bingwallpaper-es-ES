@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-11 | [La Vía Láctea sobre Zabriskie Point, Valle de la Muerte, California, EE.UU. (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_ES-ES4364571709_UHD.jpg) 
+
 2023-02-10 | [Antiguo Teatro de Epidauro en la provincia de Argólida, Grecia (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_ES-ES4124175062_UHD.jpg) 
 
 2023-02-09 | [Bajo Cañón del Antílope en Arizona, EE.UU. (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_ES-ES0536302505_UHD.jpg) 
