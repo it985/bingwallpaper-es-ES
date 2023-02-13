@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-13 | [Mirador de Achaches, Valle de la Luna, Chile (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.MoonValley_ES-ES4669661435_UHD.jpg) 
+
 2023-02-12 | [Piquero de patas azules, Islas Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.BoobyDarwinDay_ES-ES6478606884_UHD.jpg) 
 
 2023-02-11 | [La Vía Láctea sobre Zabriskie Point, Valle de la Muerte, California, EE.UU. (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_ES-ES4364571709_UHD.jpg) 
