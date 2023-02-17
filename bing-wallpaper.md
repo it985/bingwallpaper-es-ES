@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-17 | [Carroza de carnaval con un pavo real dorado. Santa Cruz de Tenerife, España (© Ian Littlewood/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CarnivalTenerife_ES-ES8827400798_UHD.jpg) 
+
 2023-02-16 | [Encinas y amapolas en la dehesa, La Serena, Badajoz, España (© Ugo Mellone/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.OakTrees_ES-ES7954212270_UHD.jpg) 
 
 2023-02-15 | [Madre y cría de hipopótamo, Parque Nacional de Chobe, Botsuana (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_ES-ES4985047724_UHD.jpg) 
