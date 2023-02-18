@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-18 | [Cuevas de hielo de Eben, Upper Peninsula, Michigan, EE.UU. (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_ES-ES4848413806_UHD.jpg) 
+
 2023-02-17 | [Carroza de carnaval con un pavo real dorado. Santa Cruz de Tenerife, España (© Ian Littlewood/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CarnivalTenerife_ES-ES8827400798_UHD.jpg) 
 
 2023-02-16 | [Encinas y amapolas en la dehesa, La Serena, Badajoz, España (© Ugo Mellone/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.OakTrees_ES-ES7954212270_UHD.jpg) 
