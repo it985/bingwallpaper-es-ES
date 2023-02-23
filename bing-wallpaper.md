@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-23 | [París, Francia (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_ES-ES5518250756_UHD.jpg) 
+
 2023-02-22 | [Campana de la paz en la cima del Fichtelberg, Sajonia, Alemania (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_ES-ES9984448035_UHD.jpg) 
 
 2023-02-21 | [Barrio Francés, Nueva Orleans, Luisiana, EE.UU. (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_ES-ES5363703214_UHD.jpg) 
