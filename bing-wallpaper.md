@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-26 | [Aventura en canopy en la Amazonia peruana, Reserva Natural de Tambopata, Perú (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_ES-ES0774196542_UHD.jpg) 
+
 2023-02-25 | [Hoodoos en el Parque Nacional del Cañón Bryce en Utah, EE.UU. (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.BryceAnniv_ES-ES0647290496_UHD.jpg) 
 
 2023-02-24 | [Pato mandarín, Richmond Park, Londres, Reino Unido (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_ES-ES0456675008_UHD.jpg) 
