@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-28 | [Figura de bronce de un abuelo y su nieto cuidando de las plantas y las flores, Córdoba, España (© David M G/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.BronzeSculptureCordoba_ES-ES1480422781_UHD.jpg) 
+
 2023-02-27 | [Osos polares dormidos en Canadá (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_ES-ES5742736946_UHD.jpg) 
 
 2023-02-26 | [Aventura en canopy en la Amazonia peruana, Reserva Natural de Tambopata, Perú (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_ES-ES0774196542_UHD.jpg) 
