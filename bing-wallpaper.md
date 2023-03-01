@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-01 | [Vista aérea de barcos, yates de lujo y mar transparente en un día soleado en Mallorca, España (© Den-belitsky/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.BalearicIslands_ES-ES0270743799_UHD.jpg) 
+
 2023-02-28 | [Figura de bronce de un abuelo y su nieto cuidando de las plantas y las flores, Córdoba, España (© David M G/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.BronzeSculptureCordoba_ES-ES1480422781_UHD.jpg) 
 
 2023-02-27 | [Osos polares dormidos en Canadá (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_ES-ES5742736946_UHD.jpg) 
