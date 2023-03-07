@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-07 | [Vista aérea de arrozales en terrazas, Yuanyang, China (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_ES-ES8960408415_UHD.jpg) 
+
 2023-03-06 | [Caballos islandeses en el campo, Islandia (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_ES-ES2728357327_UHD.jpg) 
 
 2023-03-05 | [Barn owl, England (© Ondrej Prosicky/Getty Images)](https://global.bing.com/th?id=OHR.BarnOwlWinter_ES-ES3920971236_UHD.jpg) 
