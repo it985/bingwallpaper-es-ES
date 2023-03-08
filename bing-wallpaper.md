@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-08 | [La fuente de Cibeles y el edificio del Ayuntamiento de Madrid iluminados con motivo del Día Internacional de la Mujer, Madrid, España (© dpa picture alliance/Alamy)](https://global.bing.com/th?id=OHR.IntlWomensDayChange_ES-ES6263230800_UHD.jpg) 
+
 2023-03-07 | [Vista aérea de arrozales en terrazas, Yuanyang, China (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_ES-ES8960408415_UHD.jpg) 
 
 2023-03-06 | [Caballos islandeses en el campo, Islandia (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_ES-ES2728357327_UHD.jpg) 
