@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-12 | [Teatro Nacional, Cluj-Napoca, Rumanía (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_ES-ES4472882122_UHD.jpg) 
+
 2023-03-11 | [Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)](https://global.bing.com/th?id=OHR.LongWharf_ES-ES2726959477_UHD.jpg) 
 
 2023-03-10 | [Edale Valley, Peak District, Reino Unido (© John Finney/Getty Images)](https://global.bing.com/th?id=OHR.EdaleValley_ES-ES1778719153_UHD.jpg) 
