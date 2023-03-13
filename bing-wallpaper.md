@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-13 | [Leonas durmiendo, Parque Nacional del Serengeti, Tanzania (© Cavan Images/Shutterstock)](https://global.bing.com/th?id=OHR.LionessesNap_ES-ES3129845642_UHD.jpg) 
+
 2023-03-12 | [Teatro Nacional, Cluj-Napoca, Rumanía (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_ES-ES4472882122_UHD.jpg) 
 
 2023-03-11 | [Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)](https://global.bing.com/th?id=OHR.LongWharf_ES-ES2726959477_UHD.jpg) 
