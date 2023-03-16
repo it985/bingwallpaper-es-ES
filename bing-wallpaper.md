@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-16 | [Base Panda en Chengdu, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)](https://global.bing.com/th?id=OHR.ChengduPanda_ES-ES3430991641_UHD.jpg) 
+
 2023-03-15 | [Pueblo de Agüero, Huesca, España (© Andrea Comi/Getty Images)](https://global.bing.com/th?id=OHR.AgueroSpain_ES-ES3248907310_UHD.jpg) 
 
 2023-03-14 | [Las Fallas, Día de San José, Denia, Alicante, Comunidad Valenciana, España (© Josie Elias/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.Falleras_ES-ES7940663073_UHD.jpg) 
