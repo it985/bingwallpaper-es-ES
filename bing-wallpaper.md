@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-21 | [Tizas de color pastel (© Stephen Shepherd/plainpicture)](https://global.bing.com/th?id=OHR.ColourDay_ES-ES3956249231_UHD.jpg) 
+
 2023-03-20 | [Azafrán morado (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.PurpleCrocus_ES-ES3841795706_UHD.jpg) 
 
 2023-03-19 | [Pingüinos emperadores, Bahía Atka, Antártida (© Stefan Christmann/Minden Pictures)](https://global.bing.com/th?id=OHR.EmperorPenguinFatherDay_ES-ES7841903046_UHD.jpg) 
