@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-22 | [Lago Powell en el río Colorado, EE.UU. (© Peter Schaefer/Alamy)](https://global.bing.com/th?id=OHR.LakePowellAerial_ES-ES4110651484_UHD.jpg) 
+
 2023-03-21 | [Tizas de color pastel (© Stephen Shepherd/plainpicture)](https://global.bing.com/th?id=OHR.ColourDay_ES-ES3956249231_UHD.jpg) 
 
 2023-03-20 | [Azafrán morado (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.PurpleCrocus_ES-ES3841795706_UHD.jpg) 
