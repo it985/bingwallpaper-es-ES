@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-25 | [Escalera Cecil Brewer, Londres, Inglaterra (© Yiran An/Getty Images)](https://global.bing.com/th?id=OHR.CecilBrewerStaircase_ES-ES2399541729_UHD.jpg) 
+
 2023-03-24 | [Ajo silvestre en flor, Parque Nacional de Hainich, Alemania (© Frank Sommariva/Getty Images)](https://global.bing.com/th?id=OHR.WildGarlic_ES-ES2462893665_UHD.jpg) 
 
 2023-03-23 | [Nubes lenticulares, Patagonia, Argentina (© Sasha Juliard/Shutterstock)](https://global.bing.com/th?id=OHR.CloudsPatagonia_ES-ES4307324638_UHD.jpg) 
