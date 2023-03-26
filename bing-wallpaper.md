@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-27 | [El horizonte de Nueva York en las nubes (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_ES-ES9326888079_UHD.jpg) 
+
 2023-03-25 | [Escalera Cecil Brewer, Londres, Inglaterra (© Yiran An/Getty Images)](https://global.bing.com/th?id=OHR.CecilBrewerStaircase_ES-ES2399541729_UHD.jpg) 
 
 2023-03-24 | [Ajo silvestre en flor, Parque Nacional de Hainich, Alemania (© Frank Sommariva/Getty Images)](https://global.bing.com/th?id=OHR.WildGarlic_ES-ES2462893665_UHD.jpg) 
