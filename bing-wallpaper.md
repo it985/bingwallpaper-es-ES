@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-28 | [Vía Láctea sobre Tre Cime di Lavaredo, Italia (© Juan Romero/Cavan Images)](https://global.bing.com/th?id=OHR.MWDolomites_ES-ES9475177218_UHD.jpg) 
+
 2023-03-27 | [El horizonte de Nueva York en las nubes (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_ES-ES9326888079_UHD.jpg) 
 
 2023-03-25 | [Escalera Cecil Brewer, Londres, Inglaterra (© Yiran An/Getty Images)](https://global.bing.com/th?id=OHR.CecilBrewerStaircase_ES-ES2399541729_UHD.jpg) 
