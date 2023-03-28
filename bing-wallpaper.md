@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-29 | [Dos manatíes, Crystal River, Florida, EE.UU. (© Gregory Sweeney/Getty Images)](https://global.bing.com/th?id=OHR.NuzzleManatee_ES-ES9650221623_UHD.jpg) 
+
 2023-03-28 | [Vía Láctea sobre Tre Cime di Lavaredo, Italia (© Juan Romero/Cavan Images)](https://global.bing.com/th?id=OHR.MWDolomites_ES-ES9475177218_UHD.jpg) 
 
 2023-03-27 | [El horizonte de Nueva York en las nubes (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_ES-ES9326888079_UHD.jpg) 
