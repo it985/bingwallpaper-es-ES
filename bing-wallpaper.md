@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-31 | [Cerezos en flor en el Valle del Jerte, provincia de Cáceres, Extremadura, España (© Gonzalo Azumendi/Getty Images)](https://global.bing.com/th?id=OHR.FloweringCherryJerte_ES-ES5446108513_UHD.jpg) 
+
 2023-03-30 | [Plumas de pavo real, Nakhon Si Thammarat, Tailandia (© Sarayut Thaneerat/Getty Images)](https://global.bing.com/th?id=OHR.PeacockFeathers_ES-ES9759278724_UHD.jpg) 
 
 2023-03-29 | [Dos manatíes, Crystal River, Florida, EE.UU. (© Gregory Sweeney/Getty Images)](https://global.bing.com/th?id=OHR.NuzzleManatee_ES-ES9650221623_UHD.jpg) 
