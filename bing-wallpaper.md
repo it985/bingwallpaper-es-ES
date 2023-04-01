@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-02 | [Monte Bromo en Java Oriental, Indonesia (© Bento Fotography/Getty Images)](https://global.bing.com/th?id=OHR.JavaBromo_ES-ES8404637069_UHD.jpg) 
+
 2023-04-01 | [Rana arborícola de Java (© kuritafsheen/Getty Images)](https://global.bing.com/th?id=OHR.FrogMonth_ES-ES0659962691_UHD.jpg) 
 
 2023-03-31 | [Cerezos en flor en el Valle del Jerte, provincia de Cáceres, Extremadura, España (© Gonzalo Azumendi/Getty Images)](https://global.bing.com/th?id=OHR.FloweringCherryJerte_ES-ES5446108513_UHD.jpg) 
