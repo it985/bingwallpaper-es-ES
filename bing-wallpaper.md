@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-07 | [Cría de castor euroasiático, Finlandia (© Danny Green/Minden Pictures)](https://global.bing.com/th?id=OHR.KitsAspen_ES-ES3810206969_UHD.jpg) 
+
 2023-04-06 | [Salida de la luna, Tucson, Arizona, EE.UU. (© Tim Murphy/Shutterstock)](https://global.bing.com/th?id=OHR.ArizonaPinkMoon_ES-ES1846996452_UHD.jpg) 
 
 2023-04-05 | [Conchas de Santiago, Parque Nacional de Doñana, Andalucía, España (© Duncan Usher/Minden Pictures)](https://global.bing.com/th?id=OHR.ShellsDonana_ES-ES3094370696_UHD.jpg) 
