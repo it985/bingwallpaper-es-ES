@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-09 | [Huevos de Pascua decorados (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_ES-ES4608410978_UHD.jpg) 
+
 2023-04-08 | [Calzada del Gigante, Irlanda del Norte, Reino Unido (© Dieter Meyrl/Getty Images)](https://global.bing.com/th?id=OHR.NIrelandGiants_ES-ES4461121153_UHD.jpg) 
 
 2023-04-07 | [Cría de castor euroasiático, Finlandia (© Danny Green/Minden Pictures)](https://global.bing.com/th?id=OHR.KitsAspen_ES-ES3810206969_UHD.jpg) 
