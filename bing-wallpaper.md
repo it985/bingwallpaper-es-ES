@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-10 | [Observatorio y Vía Láctea, Santa Cruz De La Palma, España (© Sergi Luque/EyeEm/Getty Images)](https://global.bing.com/th?id=OHR.ObservatorySantaCruzDeLaPalma_ES-ES6892983884_UHD.jpg) 
+
 2023-04-09 | [Huevos de Pascua decorados (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_ES-ES4608410978_UHD.jpg) 
 
 2023-04-08 | [Calzada del Gigante, Irlanda del Norte, Reino Unido (© Dieter Meyrl/Getty Images)](https://global.bing.com/th?id=OHR.NIrelandGiants_ES-ES4461121153_UHD.jpg) 
