@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-11 | [Garganta del río Columbia, Oregón, EE.UU. (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_ES-ES4204078116_UHD.jpg) 
+
 2023-04-10 | [Observatorio y Vía Láctea, Santa Cruz De La Palma, España (© Sergi Luque/EyeEm/Getty Images)](https://global.bing.com/th?id=OHR.ObservatorySantaCruzDeLaPalma_ES-ES6892983884_UHD.jpg) 
 
 2023-04-09 | [Huevos de Pascua decorados (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_ES-ES4608410978_UHD.jpg) 
