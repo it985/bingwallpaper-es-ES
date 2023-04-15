@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-16 | [Festival Internacional de Cometas de Adelaida, Australia (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_ES-ES5567025147_UHD.jpg) 
+
 2023-04-15 | [Horizonte nocturno en La Manga del Mar Menor, Murcia, España (© SOMATUSCANI/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.SardineBurial_ES-ES6575156344_UHD.jpg) 
 
 2023-04-14 | [Estrellas de mar rojas, Mar Mediterráneo (© Hans Leijnse/Minden Pictures)](https://global.bing.com/th?id=OHR.RedSeaStars_ES-ES6362641153_UHD.jpg) 
