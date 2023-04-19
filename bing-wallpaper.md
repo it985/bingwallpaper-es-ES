@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-20 | [Río Steyr, Austria (© guenterguni/Getty Images)](https://global.bing.com/th?id=OHR.SteyrRiver_ES-ES9819768798_UHD.jpg) 
+
 2023-04-19 | [Yuhina de Taiwán, Área Escénica Nacional de Alishan, Taiwán (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_ES-ES3449517383_UHD.jpg) 
 
 2023-04-18 | [Machu Picchu, Perú (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_ES-ES4329692460_UHD.jpg) 
