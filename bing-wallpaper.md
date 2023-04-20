@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-21 | [Procida, Italia (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_ES-ES3683647900_UHD.jpg) 
+
 2023-04-20 | [Río Steyr, Austria (© guenterguni/Getty Images)](https://global.bing.com/th?id=OHR.SteyrRiver_ES-ES9819768798_UHD.jpg) 
 
 2023-04-19 | [Yuhina de Taiwán, Área Escénica Nacional de Alishan, Taiwán (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_ES-ES3449517383_UHD.jpg) 
