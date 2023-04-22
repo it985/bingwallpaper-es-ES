@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-23 | [Casa Batlló de Gaudí, Barcelona, España (© Jon Arnold/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.CasaBatllo_ES-ES2986636559_UHD.jpg) 
+
 2023-04-22 | [Zorro isleño en el Parque Nacional de las Islas del Canal, California, EE.UU. (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_ES-ES6018405178_UHD.jpg) 
 
 2023-04-21 | [Procida, Italia (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_ES-ES3683647900_UHD.jpg) 
