@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-26 | [Feria de Abril, Sevilla, España (© Resi-lente/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.SevillaFair_ES-ES2601557373_UHD.jpg) 
+
 2023-04-25 | [Pingüinos Adelia en la Antártida (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_ES-ES6914854360_UHD.jpg) 
 
 2023-04-24 | [Bodega del Bosque de Baviera, Alemania (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_ES-ES6591604881_UHD.jpg) 
