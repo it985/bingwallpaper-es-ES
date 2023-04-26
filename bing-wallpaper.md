@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-27 | [Isla del Padre Sur, Texas, EE.UU. (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.SouthPadre_ES-ES6970035898_UHD.jpg) 
+
 2023-04-26 | [Feria de Abril, Sevilla, España (© Resi-lente/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.SevillaFair_ES-ES2601557373_UHD.jpg) 
 
 2023-04-25 | [Pingüinos Adelia en la Antártida (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_ES-ES6914854360_UHD.jpg) 
