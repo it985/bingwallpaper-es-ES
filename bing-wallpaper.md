@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-28 | [Mariposa Grove en el parque nacional de Yosemite, California, EE.UU. (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_ES-ES4546684811_UHD.jpg) 
+
 2023-04-27 | [Isla del Padre Sur, Texas, EE.UU. (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.SouthPadre_ES-ES6970035898_UHD.jpg) 
 
 2023-04-26 | [Feria de Abril, Sevilla, España (© Resi-lente/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.SevillaFair_ES-ES2601557373_UHD.jpg) 
