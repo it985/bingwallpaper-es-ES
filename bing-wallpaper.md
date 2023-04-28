@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-29 | [Vía Láctea sobre el Parque Nacional de Árboles de Josué, California, EE.UU. (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_ES-ES8173705095_UHD.jpg) 
+
 2023-04-28 | [Mariposa Grove en el parque nacional de Yosemite, California, EE.UU. (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_ES-ES4546684811_UHD.jpg) 
 
 2023-04-27 | [Isla del Padre Sur, Texas, EE.UU. (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.SouthPadre_ES-ES6970035898_UHD.jpg) 
