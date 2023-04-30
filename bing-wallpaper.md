@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-01 | [Puente de Quebec sobre el bajo río San Lorenzo, Canadá (© Ronald Santerre/Getty Images)](https://global.bing.com/th?id=OHR.QuebecCityBridge_ES-ES5046803154_UHD.jpg) 
+
 2023-04-30 | [Preservation Hall, Nueva Orleans, Luisiana, EE.UU. (© Cosmo Condina North America/Alamy)](https://global.bing.com/th?id=OHR.ExteriorPreservationHall_ES-ES8232748030_UHD.jpg) 
 
 2023-04-29 | [Vía Láctea sobre el Parque Nacional de Árboles de Josué, California, EE.UU. (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_ES-ES8173705095_UHD.jpg) 
