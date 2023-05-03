@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-04 | [Ruinas mayas de Tikal, Guatemala (© THP Creative/Getty Images)](https://global.bing.com/th?id=OHR.RebelBase_ES-ES8408731929_UHD.jpg) 
+
 2023-05-03 | [Ñus en el Maasai Mara, Kenia (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_ES-ES8355065020_UHD.jpg) 
 
 2023-05-02 | [Lagos Jöriseen en los Alpes de Silvretta, Suiza (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_ES-ES8285488352_UHD.jpg) 
