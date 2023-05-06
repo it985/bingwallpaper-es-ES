@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-07 | [Cierva de cola blanca y cervatillo recién nacido, Montana, EE.UU. (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_ES-ES7304576288_UHD.jpg) 
+
 2023-05-06 | [Azaleas reales en flor en la montaña Hwangmaesan, Corea del Sur (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_ES-ES6421131514_UHD.jpg) 
 
 2023-05-05 | [Santuario de Nuestra Señora de los Remedios, Puebla, México (© Radius Images/Shutterstock)](https://global.bing.com/th?id=OHR.Popocatepetl_ES-ES6274699860_UHD.jpg) 
