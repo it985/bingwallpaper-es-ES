@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-08 | [Arco Delicado, Parque Nacional de los Arcos, Utah, EE.UU. (© Mark Brodkin Photography/Getty Images)](https://global.bing.com/th?id=OHR.TheChaps_ES-ES6532934571_UHD.jpg) 
+
 2023-05-07 | [Cierva de cola blanca y cervatillo recién nacido, Montana, EE.UU. (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.OdocoileusVirginianus_ES-ES7304576288_UHD.jpg) 
 
 2023-05-06 | [Azaleas reales en flor en la montaña Hwangmaesan, Corea del Sur (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_ES-ES6421131514_UHD.jpg) 
