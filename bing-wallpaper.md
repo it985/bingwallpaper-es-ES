@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-13 | [Refugio Nacional de Vida Silvestre Sonny Bono Salton Sea, California, EE.UU. (© David McNew/Getty Images)](https://global.bing.com/th?id=OHR.SonnyBonoPelicans_ES-ES7186908543_UHD.jpg) 
+
 2023-05-12 | [Altramuz silvestre de color púrpura y azul (© silverjohn/Getty Images Plus)](https://global.bing.com/th?id=OHR.WildLupine_ES-ES7051254590_UHD.jpg) 
 
 2023-05-11 | [Estadio de Henningsvaer, Noruega (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.FootballField_ES-ES1134626005_UHD.jpg) 
