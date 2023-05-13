@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-14 | [Fiesta de los patios cordobeses, Córdoba, Andalucía, España (© iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.CordobaCourtyardFlowers_ES-ES5272569194_UHD.jpg) 
+
 2023-05-13 | [Refugio Nacional de Vida Silvestre Sonny Bono Salton Sea, California, EE.UU. (© David McNew/Getty Images)](https://global.bing.com/th?id=OHR.SonnyBonoPelicans_ES-ES7186908543_UHD.jpg) 
 
 2023-05-12 | [Altramuz silvestre de color púrpura y azul (© silverjohn/Getty Images Plus)](https://global.bing.com/th?id=OHR.WildLupine_ES-ES7051254590_UHD.jpg) 
