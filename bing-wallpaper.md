@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-22 | [Volcán Arenal, La Fortuna de San Carlos, Costa Rica (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_ES-ES0838291190_UHD.jpg) 
+
 2023-05-21 | [Temps de Flors, Girona, Cataluña, España (© Scp photography/Shutterstock)](https://global.bing.com/th?id=OHR.TempsFlors_ES-ES0333200681_UHD.jpg) 
 
 2023-05-20 | [Abejas europeas en Sheffield, Inglaterra, Reino Unido (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_ES-ES0636675084_UHD.jpg) 
