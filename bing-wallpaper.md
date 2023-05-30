@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-31 | [Cría de nutria marina, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_ES-ES1844828627_UHD.jpg) 
+
 2023-05-30 | [Playa del Amor, Islas Marietas, Puerto Vallarta, México (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_ES-ES1754486760_UHD.jpg) 
 
 2023-05-29 | [Estrecho de Rivière Salée, Guadalupe, Francia (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.Antilles_ES-ES1614588359_UHD.jpg) 
