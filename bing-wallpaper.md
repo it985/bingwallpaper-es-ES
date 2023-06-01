@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-02 | [Órice del Cabo (Oryx gazella) en dunas de arena, Namibia (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_ES-ES6265323610_UHD.jpg) 
+
 2023-06-01 | [Imagen aérea de la Gran Barrera de Coral, Australia (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_ES-ES1945757538_UHD.jpg) 
 
 2023-05-31 | [Cría de nutria marina, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_ES-ES1844828627_UHD.jpg) 
