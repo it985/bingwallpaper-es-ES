@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-04 | [Playa de arena negra del Parque Estatal de Wai'anapanapa, Maui, Hawaii, EE.UU. (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.MauiBeach_ES-ES6617224094_UHD.jpg) 
+
 2023-06-03 | [Sendero South Kaibab Trail en el Parque Nacional del Gran Cañón, Arizona, EE.UU. (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_ES-ES6499899678_UHD.jpg) 
 
 2023-06-02 | [Órice del Cabo (Oryx gazella) en dunas de arena, Namibia (© Sergey Gorshkov/Minden)](https://global.bing.com/th?id=OHR.GemsbokNamibia_ES-ES6265323610_UHD.jpg) 
