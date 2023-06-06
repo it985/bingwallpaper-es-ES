@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-07 | [Pueblo Bonito, Parque Histórico Nacional de la Cultura Chaco, Nuevo México, EE.UU. (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg) 
+
 2023-06-06 | [Acantilados de Tiza en Étretat, Normandía, Francia (© MarcelloLand/Getty Images)](https://global.bing.com/th?id=OHR.CliffsEtretat_ES-ES0516916646_UHD.jpg) 
 
 2023-06-05 | [Instalación artística ‘Priscilla the Parrotfish’, Parque Regional de Como, Saint Paul, Minnesota, EE.UU. (© Michael Siluk/UCG/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.PlasticParrotfish_ES-ES0001918918_UHD.jpg) 
