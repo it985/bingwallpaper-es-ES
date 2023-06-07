@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-08 | [Ballena jorobada (© Philip Thurston/Getty Images)](https://global.bing.com/th?id=OHR.PlayfulHumpback_ES-ES0778755910_UHD.jpg) 
+
 2023-06-07 | [Pueblo Bonito, Parque Histórico Nacional de la Cultura Chaco, Nuevo México, EE.UU. (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ChacoCulture_ES-ES0673787899_UHD.jpg) 
 
 2023-06-06 | [Acantilados de Tiza en Étretat, Normandía, Francia (© MarcelloLand/Getty Images)](https://global.bing.com/th?id=OHR.CliffsEtretat_ES-ES0516916646_UHD.jpg) 
