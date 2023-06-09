@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-10 | [Catedral de Oporto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.PortugalDay_ES-ES0944935821_UHD.jpg) 
+
 2023-06-09 | [Alfombras de Serrín de Elche de la Sierra, Albacete, España (© Pablo Blazquez Dominguez/Getty Images)](https://global.bing.com/th?id=OHR.AlfombrasElche_ES-ES1920873570_UHD.jpg) 
 
 2023-06-08 | [Ballena jorobada (© Philip Thurston/Getty Images)](https://global.bing.com/th?id=OHR.PlayfulHumpback_ES-ES0778755910_UHD.jpg) 
