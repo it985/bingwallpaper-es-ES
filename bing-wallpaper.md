@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-11 | [Garza Goliat, Parque Nacional Kruger, Sudáfrica (© Johan Swanepoel/Alamy)](https://global.bing.com/th?id=OHR.GoliathHeron_ES-ES1093754811_UHD.jpg) 
+
 2023-06-10 | [Catedral de Oporto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.PortugalDay_ES-ES0944935821_UHD.jpg) 
 
 2023-06-09 | [Alfombras de Serrín de Elche de la Sierra, Albacete, España (© Pablo Blazquez Dominguez/Getty Images)](https://global.bing.com/th?id=OHR.AlfombrasElche_ES-ES1920873570_UHD.jpg) 
