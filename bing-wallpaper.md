@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-12 | [Planta de higo chumbo, Parque Nacional de Big Bend, Texas, EE.UU. (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.BigBendAnniv_ES-ES1295024363_UHD.jpg) 
+
 2023-06-11 | [Garza Goliat, Parque Nacional Kruger, Sudáfrica (© Johan Swanepoel/Alamy)](https://global.bing.com/th?id=OHR.GoliathHeron_ES-ES1093754811_UHD.jpg) 
 
 2023-06-10 | [Catedral de Oporto, Portugal (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.PortugalDay_ES-ES0944935821_UHD.jpg) 
