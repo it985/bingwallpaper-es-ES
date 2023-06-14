@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-15 | [Luciérnagas, Parque Nacional de las Grandes Montañas Humeantes, Tennessee, EE.UU. (© Floris Van Bruegel/Minden Pictures)](https://global.bing.com/th?id=OHR.SmokyFireflies_ES-ES1498305474_UHD.jpg) 
+
 2023-06-14 | [Parque Nacional de Tablas de Daimiel, Castilla-La Mancha, España (© Franz Aberham/Getty Images)](https://global.bing.com/th?id=OHR.TablasDeDaimiel_ES-ES1986401744_UHD.jpg) 
 
 2023-06-13 | [Árboles con musgo español sobre el paseo marítimo en el Pantano de Okefenokee, Georgia, EE.UU.  (© Emmer Photo/Alamy)](https://global.bing.com/th?id=OHR.OkefenokeeSwamp_ES-ES1411419705_UHD.jpg) 
