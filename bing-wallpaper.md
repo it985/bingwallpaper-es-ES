@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-16 | [Tortuga carey nadando cerca de la Isla de Aka, Okinawa, Japón (© Robert Mallon/Getty Images)](https://global.bing.com/th?id=OHR.HawksbillTurtle_ES-ES3306641934_UHD.jpg) 
+
 2023-06-15 | [Luciérnagas, Parque Nacional de las Grandes Montañas Humeantes, Tennessee, EE.UU. (© Floris Van Bruegel/Minden Pictures)](https://global.bing.com/th?id=OHR.SmokyFireflies_ES-ES1498305474_UHD.jpg) 
 
 2023-06-14 | [Parque Nacional de Tablas de Daimiel, Castilla-La Mancha, España (© Franz Aberham/Getty Images)](https://global.bing.com/th?id=OHR.TablasDeDaimiel_ES-ES1986401744_UHD.jpg) 
