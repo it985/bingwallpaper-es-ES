@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-21 | [Stonehenge, llanura de Salisbury, Wiltshire, Inglaterra (© Captain Skyhigh/Getty Images)](https://global.bing.com/th?id=OHR.StonehengeSalisbury_ES-ES9401156332_UHD.jpg) 
+
 2023-06-20 | [Águila americana, bosque nacional Tongass, Alaska, EE.UU. (© Jaynes Gallery/Shutterstock)](https://global.bing.com/th?id=OHR.EagleTree_ES-ES9147685139_UHD.jpg) 
 
 2023-06-19 | [Corzo corriendo sobre la hierba en Normandía, Francia (© Gerard Lacz/Minden)](https://global.bing.com/th?id=OHR.Fawn_ES-ES8961427196_UHD.jpg) 
