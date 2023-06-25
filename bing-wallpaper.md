@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-26 | [Castillo de Villandry y su jardín, Valle del Loira, Francia (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_ES-ES0802817383_UHD.jpg) 
+
 2023-06-25 | [El Tesoro de Petra, Jordania (© WitthayaP/Shutterstock)](https://global.bing.com/th?id=OHR.PetraTreasury_ES-ES0704016952_UHD.jpg) 
 
 2023-06-24 | [Personas bañándose en el mar Mediterráneo el día de San Juan, Málaga, Andalucía, España (© JOSE LUIS ROCA/AFP via Getty Images)](https://global.bing.com/th?id=OHR.SanJuanMalaga_ES-ES1708662022_UHD.jpg) 
