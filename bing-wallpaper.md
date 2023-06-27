@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-28 | [Día Internacional del Orgullo LGBT (© Arctic-Images/Getty Images)](https://global.bing.com/th?id=OHR.PrideIceland_ES-ES6823133861_UHD.jpg) 
+
 2023-06-27 | [Sedona, Arizona, EE.UU. (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_ES-ES0895046413_UHD.jpg) 
 
 2023-06-26 | [Castillo de Villandry y su jardín, Valle del Loira, Francia (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_ES-ES0802817383_UHD.jpg) 
