@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-02 | [Acueducto de Veluwemeer, Países Bajos (© Frolova_Elena/Getty Images)](https://global.bing.com/th?id=OHR.HalfwayBoats_ES-ES5466545154_UHD.jpg) 
+
 2023-07-01 | [Ciclistas del Tour de Francia cruzando el Puente del Gard, Francia (© Gonzalo Fuentes/Reuters)](https://global.bing.com/th?id=OHR.PelotonPont_ES-ES5136624994_UHD.jpg) 
 
 2023-06-30 | [Madre y osezno de oso pardo, Parque Nacional y Reserva del Lago Clark, Alaska, EE.UU. (© Carlos Carreno/Getty Images)](https://global.bing.com/th?id=OHR.ClamBears_ES-ES4527663075_UHD.jpg) 
