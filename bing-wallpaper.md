@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-08 | [Capilla conmemorativa Mildred B. Cooper, Bella Vista, Arkansas, EE.UU. (© Eddie Brady/Getty Images)](https://global.bing.com/th?id=OHR.CooperChapel_ES-ES1705661178_UHD.jpg) 
+
 2023-07-07 | [Vainas de cacao de Ambanja, Madagascar (© pierivb/Getty Images)](https://global.bing.com/th?id=OHR.CocoaPods_ES-ES1587256646_UHD.jpg) 
 
 2023-07-06 | [Catedral de Santa María la Real, siglo XV, Pamplona, España (© SvetlanaSF/Shutterstock)](https://global.bing.com/th?id=OHR.ComparsaPamplona_ES-ES4789815957_UHD.jpg) 
