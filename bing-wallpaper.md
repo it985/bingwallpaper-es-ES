@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-14 | [Tiburones punta negra, Maldivas (© Filippo Bacci/Getty Images)](https://global.bing.com/th?id=OHR.BlacktipSharks_ES-ES2959744866_UHD.jpg) 
+
 2023-07-13 | [Parque Geológico Nacional Zhangye Danxia, Gansu, China (© TONNAJA/Getty Images)](https://global.bing.com/th?id=OHR.ZhangyeGeopark_ES-ES2744274996_UHD.jpg) 
 
 2023-07-12 | [Lagos de Covadonga, Asturias, España (© Alicia Garcia Benito/Shutterstock)](https://global.bing.com/th?id=OHR.AsturiasCovadonga_ES-ES5405317829_UHD.jpg) 
