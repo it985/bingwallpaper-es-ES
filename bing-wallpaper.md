@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-15 | [Castelmezzano, Italia (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.CastelmazzanoSunrise_ES-ES3147278053_UHD.jpg) 
+
 2023-07-14 | [Tiburones punta negra, Maldivas (© Filippo Bacci/Getty Images)](https://global.bing.com/th?id=OHR.BlacktipSharks_ES-ES2959744866_UHD.jpg) 
 
 2023-07-13 | [Parque Geológico Nacional Zhangye Danxia, Gansu, China (© TONNAJA/Getty Images)](https://global.bing.com/th?id=OHR.ZhangyeGeopark_ES-ES2744274996_UHD.jpg) 
