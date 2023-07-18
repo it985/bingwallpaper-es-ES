@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-19 | [Lago Crescent cerca de Dunhuang, provincia de Gansu, China (© R7 Photo/Shutterstock)](https://global.bing.com/th?id=OHR.CrescentLake_ES-ES3629924640_UHD.jpg) 
+
 2023-07-18 | [Cálao bicorne en el Parque Nacional de Khao Yai, Tailandia (© kajornyot wildlife photography/Shutterstock)](https://global.bing.com/th?id=OHR.BucerosBicornis_ES-ES3494607604_UHD.jpg) 
 
 2023-07-17 | [Castillo de Cloughoughter en Lough Oughter, Condado de Cavan, Irlanda (© 4H4 PH/Shutterstock)](https://global.bing.com/th?id=OHR.CavanCastle_ES-ES3384324350_UHD.jpg) 
