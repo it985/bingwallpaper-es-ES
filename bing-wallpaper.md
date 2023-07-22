@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-23 | [Plantación de té Edinburgh, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_ES-ES4580884639_UHD.jpg) 
+
 2023-07-22 | [Acampada de hamaca en un ciprés calvo, Florida, EE.UU. (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_ES-ES4414764833_UHD.jpg) 
 
 2023-07-21 | [Playa de La Concha vista desde el Monte Igueldo, San Sebastián, España (© John Baran/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.PlayaDeLaConcha_ES-ES4240005438_UHD.jpg) 
