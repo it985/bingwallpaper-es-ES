@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-24 | [Cebras en el Parque Nacional Tarangire, Tanzania (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_ES-ES4737783637_UHD.jpg) 
+
 2023-07-23 | [Plantación de té Edinburgh, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_ES-ES4580884639_UHD.jpg) 
 
 2023-07-22 | [Acampada de hamaca en un ciprés calvo, Florida, EE.UU. (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_ES-ES4414764833_UHD.jpg) 
