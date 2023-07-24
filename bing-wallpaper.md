@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-25 | [Piscina natural en Santa Cruz de Tenerife, España (© Jairo Daz/EyeEm/Getty Images)](https://global.bing.com/th?id=OHR.TenerifePool_ES-ES5200653811_UHD.jpg) 
+
 2023-07-24 | [Cebras en el Parque Nacional Tarangire, Tanzania (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_ES-ES4737783637_UHD.jpg) 
 
 2023-07-23 | [Plantación de té Edinburgh, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_ES-ES4580884639_UHD.jpg) 
