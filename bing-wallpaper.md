@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-27 | [Arco del Triunfo del Carrusel y Pirámide del Louvre, París, Francia (© Jon Hicks/Getty Images)](https://global.bing.com/th?id=OHR.ParisLouvre_ES-ES5817467821_UHD.jpg) 
+
 2023-07-26 | [Parque nacional de los Manglares, Abu Dabi, Emiratos Árabes Unidos (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MangrovePark_ES-ES5613548226_UHD.jpg) 
 
 2023-07-25 | [Piscina natural en Santa Cruz de Tenerife, España (© Jairo Daz/EyeEm/Getty Images)](https://global.bing.com/th?id=OHR.TenerifePool_ES-ES5200653811_UHD.jpg) 
