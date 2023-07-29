@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-30 | [Allariz, Orense, Galicia, España (© Brais Seara via Getty Images)](https://global.bing.com/th?id=OHR.ApostolSantiagoGalicia_ES-ES8270984455_UHD.jpg) 
+
 2023-07-29 | [Tigre de Bengala, Parque Nacional de Ranthambore, India (© Andy Rouse/Minden Pictures)](https://global.bing.com/th?id=OHR.TigerIndia_ES-ES2284216149_UHD.jpg) 
 
 2023-07-28 | [Parque de la Naturaleza de Cabárceno, Cantabria, España (© Javier Fernández Sánchez/Getty Images)](https://global.bing.com/th?id=OHR.CantabriaDay_ES-ES8077201829_UHD.jpg) 
