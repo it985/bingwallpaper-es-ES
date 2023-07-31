@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-01 | [Monte Foraker visto desde Denali, Parque Nacional de Denali, Alaska, EE.UU. (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DenaliClimber_ES-ES3274030285_UHD.jpg) 
+
 2023-07-31 | [Casa Cueva, Parque Estatal de Hocking Hills, Ohio, EE.UU. (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_ES-ES2728189388_UHD.jpg) 
 
 2023-07-30 | [Allariz, Orense, Galicia, España (© Brais Seara via Getty Images)](https://global.bing.com/th?id=OHR.ApostolSantiagoGalicia_ES-ES8270984455_UHD.jpg) 
