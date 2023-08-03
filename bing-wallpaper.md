@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-04 | [Abadía de Tintern, Gales, Reino Unido (© matthibcn/Getty Images)](https://global.bing.com/th?id=OHR.GothicRuins_ES-ES4960071647_UHD.jpg) 
+
 2023-08-03 | [Reserva Natural de Zelenci, Eslovenia (© Andrey Danilovich/Getty Images)](https://global.bing.com/th?id=OHR.ZelenciSprings_ES-ES4174854094_UHD.jpg) 
 
 2023-08-02 | [Monte de arenisca en el Parque Nacional de Capitol Reef, Utah, EE.UU. (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CapitolButte_ES-ES3615856410_UHD.jpg) 
