@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-05 | [Frailecillo atlántico, Islandia (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_ES-ES5247855949_UHD.jpg) 
+
 2023-08-04 | [Abadía de Tintern, Gales, Reino Unido (© matthibcn/Getty Images)](https://global.bing.com/th?id=OHR.GothicRuins_ES-ES4960071647_UHD.jpg) 
 
 2023-08-03 | [Reserva Natural de Zelenci, Eslovenia (© Andrey Danilovich/Getty Images)](https://global.bing.com/th?id=OHR.ZelenciSprings_ES-ES4174854094_UHD.jpg) 
