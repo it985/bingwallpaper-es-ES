@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-06 | [Kagami-ike o "Estanque espejo”, Nagano, Japón (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_ES-ES5655396958_UHD.jpg) 
+
 2023-08-05 | [Frailecillo atlántico, Islandia (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_ES-ES5247855949_UHD.jpg) 
 
 2023-08-04 | [Abadía de Tintern, Gales, Reino Unido (© matthibcn/Getty Images)](https://global.bing.com/th?id=OHR.GothicRuins_ES-ES4960071647_UHD.jpg) 
