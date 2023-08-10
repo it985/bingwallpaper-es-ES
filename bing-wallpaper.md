@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-11 | [Piscina "Gateway" en el parque de esculturas Jupiter Artland, Edimburgo, Escocia (© Owen Humphreys/PA Images/Alamy)](https://global.bing.com/th?id=OHR.JupiterArtland_ES-ES8553540755_UHD.jpg) 
+
 2023-08-10 | [Un león en Maasai Mara, Kenia (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WorldLionDay_ES-ES6884222096_UHD.jpg) 
 
 2023-08-09 | [Obra de arte indígena, centro artístico Ngaruwanajirri, Wurrumiyanga, Isla de Bathurst, Australia (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_ES-ES6749343914_UHD.jpg) 
