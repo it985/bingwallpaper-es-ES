@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-13 | [Panorámica nocturna de la Vía Láctea, Chulilla, España (© Cavan Images/Getty Images)](https://global.bing.com/th?id=OHR.Perseidas_ES-ES6990766154_UHD.jpg) 
+
 2023-08-12 | [Familia de elefantes en el Parque Nacional de Amboseli, Kenia (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.ThreeElephants_ES-ES8167811199_UHD.jpg) 
 
 2023-08-11 | [Piscina "Gateway" en el parque de esculturas Jupiter Artland, Edimburgo, Escocia (© Owen Humphreys/PA Images/Alamy)](https://global.bing.com/th?id=OHR.JupiterArtland_ES-ES8553540755_UHD.jpg) 
