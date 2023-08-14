@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-15 | [Feria de Málaga, Andalucía, España (© SJ Travel Photo and Video/Shutterstock)](https://global.bing.com/th?id=OHR.FeriaDeMalaga_ES-ES7110024776_UHD.jpg) 
+
 2023-08-14 | [Pequeño geko en una hoja (© Darren Greenwood/Alamy)](https://global.bing.com/th?id=OHR.GeckoLeaf_ES-ES8095107957_UHD.jpg) 
 
 2023-08-13 | [Panorámica nocturna de la Vía Láctea, Chulilla, España (© Cavan Images/Getty Images)](https://global.bing.com/th?id=OHR.Perseidas_ES-ES6990766154_UHD.jpg) 
