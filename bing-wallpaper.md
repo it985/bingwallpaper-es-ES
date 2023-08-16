@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-17 | [Piazza IX Aprile, Taormina, Sicilia, Italia (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_ES-ES3572734351_UHD.jpg) 
+
 2023-08-16 | [Autopista Overseas Highway de los Cayos, Florida, EE.UU. (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_ES-ES4220778190_UHD.jpg) 
 
 2023-08-15 | [Feria de Málaga, Andalucía, España (© SJ Travel Photo and Video/Shutterstock)](https://global.bing.com/th?id=OHR.FeriaDeMalaga_ES-ES7110024776_UHD.jpg) 
