@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-20 | [Faro de Start Point, Sur de Devon, Inglaterra (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_ES-ES5997851284_UHD.jpg) 
+
 2023-08-19 | [Ardilla mirando por el objetivo de una cámara (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_ES-ES5849833566_UHD.jpg) 
 
 2023-08-18 | [“Montañas de Avatar”, Parque Forestal Nacional de Zhangjiajie, China (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_ES-ES5548493877_UHD.jpg) 
