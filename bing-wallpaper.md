@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-22 | [Anfiteatro de El Djem, Túnez (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.TunisiaAmphitheatre_ES-ES6251726563_UHD.jpg) 
+
 2023-08-21 | [Lago Esmeralda, Sur de la carretera Klondike, Yukón, Canadá (© artherng/Getty Images)](https://global.bing.com/th?id=OHR.EmeraldLakeYukon_ES-ES6112379724_UHD.jpg) 
 
 2023-08-20 | [Faro de Start Point, Sur de Devon, Inglaterra (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_ES-ES5997851284_UHD.jpg) 
