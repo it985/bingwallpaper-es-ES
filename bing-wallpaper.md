@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-24 | [Cala Aleta de tiburón, Davenport, California, EE.UU. (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_ES-ES6736765926_UHD.jpg) 
+
 2023-08-23 | [Cascada Skógafoss, Islandia (© Maridav/Shutterstock)](https://global.bing.com/th?id=OHR.SkogafossWaterfall_ES-ES6467802413_UHD.jpg) 
 
 2023-08-22 | [Anfiteatro de El Djem, Túnez (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.TunisiaAmphitheatre_ES-ES6251726563_UHD.jpg) 
