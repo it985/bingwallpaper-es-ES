@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-25 | [Fiesta de la Batalla de las flores, Laredo, Cantabria, España (© Helena Garcia Huertas/shutterstock)](https://global.bing.com/th?id=OHR.Battleofflowers_ES-ES3497092168_UHD.jpg) 
+
 2023-08-24 | [Cala Aleta de tiburón, Davenport, California, EE.UU. (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_ES-ES6736765926_UHD.jpg) 
 
 2023-08-23 | [Cascada Skógafoss, Islandia (© Maridav/Shutterstock)](https://global.bing.com/th?id=OHR.SkogafossWaterfall_ES-ES6467802413_UHD.jpg) 
