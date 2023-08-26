@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-27 | [Seongsan Ilchulbong, un cono de toba en la Isla de Jeju, Corea del Sur (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_ES-ES3824055349_UHD.jpg) 
+
 2023-08-26 | [Catedral de Berlín e Isla de los Museos, Berlín, Alemania (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_ES-ES3676432544_UHD.jpg) 
 
 2023-08-25 | [Fiesta de la Batalla de las flores, Laredo, Cantabria, España (© Helena Garcia Huertas/shutterstock)](https://global.bing.com/th?id=OHR.Battleofflowers_ES-ES3497092168_UHD.jpg) 
