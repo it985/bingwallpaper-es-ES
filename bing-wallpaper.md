@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-29 | [Reserva Natural de Nakupenda Beach, Zanzíbar, Tanzania (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.NakupendaBeach_ES-ES5976546973_UHD.jpg) 
+
 2023-08-28 | [Fuerte Lovrijenac, Puerto Oeste, Dubrovnik, Croacia (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_ES-ES3951111300_UHD.jpg) 
 
 2023-08-27 | [Seongsan Ilchulbong, un cono de toba en la Isla de Jeju, Corea del Sur (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_ES-ES3824055349_UHD.jpg) 
