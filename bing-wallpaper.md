@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-02 | [Colibrí de Allen, Santa Cruz, California, EE.UU. (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_ES-ES2909315471_UHD.jpg) 
+
 2023-09-01 | [Setas cola de pavo, Brevard, Carolina del Norte, EE.UU. (© Bill Gozansky/Alamy)](https://global.bing.com/th?id=OHR.TurkeyTailMush_ES-ES2759829479_UHD.jpg) 
 
 2023-08-31 | [Cactus saguaro, Monumento Nacional Ironwood, Arizona, EE.UU. (© Jack Dykinga/Minden Pictures)](https://global.bing.com/th?id=OHR.IronwoodCactus_ES-ES4399804211_UHD.jpg) 
