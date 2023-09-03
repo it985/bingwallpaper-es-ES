@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-04 | [Marismas de Bourges , Francia (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.BourgesMarsh_ES-ES3211578621_UHD.jpg) 
+
 2023-09-03 | [Vista aérea de Manhattan, Nueva York, EE.UU. (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_ES-ES3067224464_UHD.jpg) 
 
 2023-09-02 | [Colibrí de Allen, Santa Cruz, California, EE.UU. (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_ES-ES2909315471_UHD.jpg) 
