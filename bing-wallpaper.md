@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-07 | [Meandro Melero, Extremadura, España (© iStock/Gettyimages)](https://global.bing.com/th?id=OHR.ExtremaduraDay_ES-ES4000555199_UHD.jpg) 
+
 2023-09-06 | [Antiguo puerto veneciano, Rétino, Isla de Creta, Grecia (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_ES-ES3706408437_UHD.jpg) 
 
 2023-09-05 | [Monte Segla, Isla de Senja, Troms y Finnmark, Noruega (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_ES-ES3516085503_UHD.jpg) 
