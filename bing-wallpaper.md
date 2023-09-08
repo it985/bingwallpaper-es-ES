@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-09 | [Templo Wat Chaiwatthanaram, Parque Histórico de Ayutthaya, Tailandia (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_ES-ES7307510230_UHD.jpg) 
+
 2023-09-08 | [Viviendas georgianas, El Circus, Bath, Somerset, Inglaterra, Reino Unido (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.BathCircus_ES-ES7093091881_UHD.jpg) 
 
 2023-09-07 | [Meandro Melero, Extremadura, España (© iStock/Gettyimages)](https://global.bing.com/th?id=OHR.ExtremaduraDay_ES-ES4000555199_UHD.jpg) 
