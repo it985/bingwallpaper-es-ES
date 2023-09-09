@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-10 | [Pareja de morsas en el Océano Glacial Ártico, Svalbard, Noruega (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_ES-ES7420549958_UHD.jpg) 
+
 2023-09-09 | [Templo Wat Chaiwatthanaram, Parque Histórico de Ayutthaya, Tailandia (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_ES-ES7307510230_UHD.jpg) 
 
 2023-09-08 | [Viviendas georgianas, El Circus, Bath, Somerset, Inglaterra, Reino Unido (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.BathCircus_ES-ES7093091881_UHD.jpg) 
