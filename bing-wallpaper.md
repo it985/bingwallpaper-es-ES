@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-12 | [Mar del Norte al atardecer, Norddorf, Isla de Amrum, Alemania (© Frederick Doerschem/Getty Images)](https://global.bing.com/th?id=OHR.NorthSeaStairs_ES-ES7736486861_UHD.jpg) 
+
 2023-09-11 | [Castillo de Monteagudo, Murcia, España (© Nico De Pasquale Photography/Getty Images)](https://global.bing.com/th?id=OHR.FeriaDeMurcia_ES-ES7651108908_UHD.jpg) 
 
 2023-09-10 | [Pareja de morsas en el Océano Glacial Ártico, Svalbard, Noruega (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_ES-ES7420549958_UHD.jpg) 
