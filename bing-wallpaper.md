@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-13 | [Templos de la colina Hemakuta, Hampi, Karnataka, India (© Images of india/Alamy)](https://global.bing.com/th?id=OHR.HemakutaHill_ES-ES7845334706_UHD.jpg) 
+
 2023-09-12 | [Mar del Norte al atardecer, Norddorf, Isla de Amrum, Alemania (© Frederick Doerschem/Getty Images)](https://global.bing.com/th?id=OHR.NorthSeaStairs_ES-ES7736486861_UHD.jpg) 
 
 2023-09-11 | [Castillo de Monteagudo, Murcia, España (© Nico De Pasquale Photography/Getty Images)](https://global.bing.com/th?id=OHR.FeriaDeMurcia_ES-ES7651108908_UHD.jpg) 
