@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-16 | [Una caseta del Oktoberfest en Theresienwiese, Múnich, Baviera, Alemania (© Peter Kneffel/picture alliance via Getty Images)](https://global.bing.com/th?id=OHR.OktoberfestWorkers_ES-ES3225208971_UHD.jpg) 
+
 2023-09-15 | [Puesta de sol en el Parque Forestal de Glenariff, condado de Antrim, Irlanda (© Peter Zelei/Getty Images)](https://global.bing.com/th?id=OHR.GlenariffForest_ES-ES8051620183_UHD.jpg) 
 
 2023-09-14 | [Caballos de Przewalski, Parque Nacional de Hustai, Mongolia (© Ondrej Prosicky/Shutterstock)](https://global.bing.com/th?id=OHR.MongoliaHorses_ES-ES7951435497_UHD.jpg) 
