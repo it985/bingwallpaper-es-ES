@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-17 | [Cartacuba, Parque Nacional Alejandro de Humboldt, Cuba (© Bruno D'Amicis/Minden Pictures)](https://global.bing.com/th?id=OHR.CubanTody_ES-ES8262065568_UHD.jpg) 
+
 2023-09-16 | [Una caseta del Oktoberfest en Theresienwiese, Múnich, Baviera, Alemania (© Peter Kneffel/picture alliance via Getty Images)](https://global.bing.com/th?id=OHR.OktoberfestWorkers_ES-ES3225208971_UHD.jpg) 
 
 2023-09-15 | [Puesta de sol en el Parque Forestal de Glenariff, condado de Antrim, Irlanda (© Peter Zelei/Getty Images)](https://global.bing.com/th?id=OHR.GlenariffForest_ES-ES8051620183_UHD.jpg) 
