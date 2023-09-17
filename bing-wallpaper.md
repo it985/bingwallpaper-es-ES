@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-18 | [Vía Láctea sobre el Parque Natural del Sudoeste Alentejano y Costa Vicentina, Portugal (© Daniel Garrido/Getty Images)](https://global.bing.com/th?id=OHR.MilkyWayPortugal_ES-ES8399966635_UHD.jpg) 
+
 2023-09-17 | [Cartacuba, Parque Nacional Alejandro de Humboldt, Cuba (© Bruno D'Amicis/Minden Pictures)](https://global.bing.com/th?id=OHR.CubanTody_ES-ES8262065568_UHD.jpg) 
 
 2023-09-16 | [Una caseta del Oktoberfest en Theresienwiese, Múnich, Baviera, Alemania (© Peter Kneffel/picture alliance via Getty Images)](https://global.bing.com/th?id=OHR.OktoberfestWorkers_ES-ES3225208971_UHD.jpg) 
