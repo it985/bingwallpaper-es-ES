@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-20 | [Castillo de Colomares en Benalmádena, Málaga, Andalucía, España (© VictoriaSh/Shutterstock)](https://global.bing.com/th?id=OHR.ColomaresCastle_ES-ES7485421006_UHD.jpg) 
+
 2023-09-19 | [Puerto del Spluga, Cantón de los Grisones, Suiza (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SplugenPass_ES-ES3284919427_UHD.jpg) 
 
 2023-09-18 | [Vía Láctea sobre el Parque Natural del Sudoeste Alentejano y Costa Vicentina, Portugal (© Daniel Garrido/Getty Images)](https://global.bing.com/th?id=OHR.MilkyWayPortugal_ES-ES8399966635_UHD.jpg) 
