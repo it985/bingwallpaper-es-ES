@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-22 | [Dos machos de rinoceronte blanco del sur, Reserva privada de caza de Shamwari, Sudáfrica (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_ES-ES4677538542_UHD.jpg) 
+
 2023-09-21 | [Interior del Centro Nobel de la Paz, Oslo, Noruega (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_ES-ES8976171103_UHD.jpg) 
 
 2023-09-20 | [Castillo de Colomares en Benalmádena, Málaga, Andalucía, España (© VictoriaSh/Shutterstock)](https://global.bing.com/th?id=OHR.ColomaresCastle_ES-ES7485421006_UHD.jpg) 
