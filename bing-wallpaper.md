@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-24 | [Vista de la ciudad desde el Parque Güell en Barcelona, España (© Gatsi/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.MerceBarcelona_ES-ES3690620266_UHD.jpg) 
+
 2023-09-23 | [Parque Nacional de Ordesa y Monte Perdido, Huesca, Aragón, España (© Wirestock Creators via Shutterstock)](https://global.bing.com/th?id=OHR.EquinocioOtono_ES-ES3613916413_UHD.jpg) 
 
 2023-09-22 | [Dos machos de rinoceronte blanco del sur, Reserva privada de caza de Shamwari, Sudáfrica (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_ES-ES4677538542_UHD.jpg) 
