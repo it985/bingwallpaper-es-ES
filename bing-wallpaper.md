@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-25 | [Nutria marina en Bartlett Cove, Parque Nacional y Reserva de la Bahía de los Glaciares, Alaska, EE.UU. (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_ES-ES8901247713_UHD.jpg) 
+
 2023-09-24 | [Vista de la ciudad desde el Parque Güell en Barcelona, España (© Gatsi/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.MerceBarcelona_ES-ES3690620266_UHD.jpg) 
 
 2023-09-23 | [Parque Nacional de Ordesa y Monte Perdido, Huesca, Aragón, España (© Wirestock Creators via Shutterstock)](https://global.bing.com/th?id=OHR.EquinocioOtono_ES-ES3613916413_UHD.jpg) 
