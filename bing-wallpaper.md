@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-27 | [Via Krupp en la isla de Capri, Italia (© Mikolaj Niemczewski/Shutterstock)](https://global.bing.com/th?id=OHR.CapriKrupp_ES-ES0453201189_UHD.jpg) 
+
 2023-09-26 | [Skatepark de Venice Beach al atardecer, Los Ángeles, California, EE.UU. (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_ES-ES0307104530_UHD.jpg) 
 
 2023-09-25 | [Nutria marina en Bartlett Cove, Parque Nacional y Reserva de la Bahía de los Glaciares, Alaska, EE.UU. (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_ES-ES8901247713_UHD.jpg) 
