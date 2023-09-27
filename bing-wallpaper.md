@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-28 | [Buque portacontenedores cerca de un puerto comercial en Tailandia (© Suriyapong Thongsawang/Getty Images)](https://global.bing.com/th?id=OHR.MaritimeDay_ES-ES0595599413_UHD.jpg) 
+
 2023-09-27 | [Via Krupp en la isla de Capri, Italia (© Mikolaj Niemczewski/Shutterstock)](https://global.bing.com/th?id=OHR.CapriKrupp_ES-ES0453201189_UHD.jpg) 
 
 2023-09-26 | [Skatepark de Venice Beach al atardecer, Los Ángeles, California, EE.UU. (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_ES-ES0307104530_UHD.jpg) 
