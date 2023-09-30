@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-01 | [Lago de Bled al amanecer desde el mirador Mala Osojnica, Eslovenia (© Rasica/Getty Images)](https://global.bing.com/th?id=OHR.LakeBledSunrise_ES-ES1096593407_UHD.jpg) 
+
 2023-09-30 | [Colores otoñales en el Parque Nacional de Shenandoah, Virginia, EE.UU. (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_ES-ES0953486275_UHD.jpg) 
 
 2023-09-29 | [Torre Jiaxiu bajo la luna llena, Guiyang, provincia de Guizhou, China (© Wang Yukun/Getty Images)](https://global.bing.com/th?id=OHR.GuiyangMoon_ES-ES0747873964_UHD.jpg) 
