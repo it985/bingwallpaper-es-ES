@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-06 | [Parque Estatal de las cataratas de Taughannock en Trumansburg, Nueva York, EE.UU. (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_ES-ES9306414280_UHD.jpg) 
+
 2023-10-05 | [Pingüinos papúa, Antártida (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_ES-ES1727367009_UHD.jpg) 
 
 2023-10-04 | [Formación de estrellas jóvenes en la nebulosa de la Tarántula, telescopio espacial James Webb (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_ES-ES1450362771_UHD.jpg) 
