@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-07 | [Basílica de Nuestra Señora del Pilar y el río Ebro, Zaragoza, Aragón, España (© iStock by Getty Images)](https://global.bing.com/th?id=OHR.PilarFestivities_ES-ES6761605818_UHD.jpg) 
+
 2023-10-06 | [Parque Estatal de las cataratas de Taughannock en Trumansburg, Nueva York, EE.UU. (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_ES-ES9306414280_UHD.jpg) 
 
 2023-10-05 | [Pingüinos papúa, Antártida (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_ES-ES1727367009_UHD.jpg) 
