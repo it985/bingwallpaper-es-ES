@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-09 | [Petroglifos de Fremont, Monumento Nacional de los Dinosaurios, Jensen, Utah, EE.UU. (© Dan Leeth/Alamy)](https://global.bing.com/th?id=OHR.FremontPetroglyph_ES-ES9957087297_UHD.jpg) 
+
 2023-10-08 | [Pulpo escondido dentro de una almeja gigante, mar de Célebes, Indonesia (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_ES-ES9783274037_UHD.jpg) 
 
 2023-10-07 | [Basílica de Nuestra Señora del Pilar y el río Ebro, Zaragoza, Aragón, España (© iStock by Getty Images)](https://global.bing.com/th?id=OHR.PilarFestivities_ES-ES6761605818_UHD.jpg) 
