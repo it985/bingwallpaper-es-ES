@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-12 | [Miembros de la Patrulla Acrobática Paracaidista del Ejército del Aire (PAPEA), Torre del Mar, Málaga, Andalucía, España (© JORGE GUERRERO/AFP via Getty Images)](https://global.bing.com/th?id=OHR.SpanishNationalHoliday_ES-ES4664414360_UHD.jpg) 
+
 2023-10-11 | [Las Colinas Pintadas en el Monumento Nacional John Day Fossil Beds, Oregón, EE.UU. (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_ES-ES4395598487_UHD.jpg) 
 
 2023-10-10 | [Monte Sopris, Colorado, EE.UU. (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_ES-ES0073318708_UHD.jpg) 
