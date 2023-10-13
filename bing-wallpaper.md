@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-14 | [Eclipse solar anular o "anillo de fuego", Doha, Catar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_ES-ES5502461115_UHD.jpg) 
+
 2023-10-13 | [Vieste, en la provincia de Foggia, Región de Apulia, Italia (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_ES-ES5247898725_UHD.jpg) 
 
 2023-10-12 | [Miembros de la Patrulla Acrobática Paracaidista del Ejército del Aire (PAPEA), Torre del Mar, Málaga, Andalucía, España (© JORGE GUERRERO/AFP via Getty Images)](https://global.bing.com/th?id=OHR.SpanishNationalHoliday_ES-ES4664414360_UHD.jpg) 
