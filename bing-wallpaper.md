@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-15 | [Erizo europeo refugiado en la corteza de un árbol, Sussex, Inglaterra (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_ES-ES5622502612_UHD.jpg) 
+
 2023-10-14 | [Eclipse solar anular o "anillo de fuego", Doha, Catar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_ES-ES5502461115_UHD.jpg) 
 
 2023-10-13 | [Vieste, en la provincia de Foggia, Región de Apulia, Italia (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_ES-ES5247898725_UHD.jpg) 
