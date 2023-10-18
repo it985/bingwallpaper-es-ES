@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-19 | [Cosecha de nenúfares, delta del río Mekong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://global.bing.com/th?id=OHR.WaterLilyVietnam_ES-ES6623233360_UHD.jpg) 
+
 2023-10-18 | [Refugio Nacional de Vida Silvestre de Kodiak, Isla Kodiak, Alaska, EE.UU. (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.KodiakAlaska_ES-ES6523773825_UHD.jpg) 
 
 2023-10-17 | [Antiguos textos tallados de Persépolis, Irán (© George Hall/Alamy)](https://global.bing.com/th?id=OHR.SpreadsheetDay_ES-ES6382260914_UHD.jpg) 
