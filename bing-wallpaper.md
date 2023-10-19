@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-20 | [Bebé de perezoso pigmeo, Isla Escudo de Veraguas, Panamá (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.PygmySloth_ES-ES3200291447_UHD.jpg) 
+
 2023-10-19 | [Cosecha de nenúfares, delta del río Mekong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://global.bing.com/th?id=OHR.WaterLilyVietnam_ES-ES6623233360_UHD.jpg) 
 
 2023-10-18 | [Refugio Nacional de Vida Silvestre de Kodiak, Isla Kodiak, Alaska, EE.UU. (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.KodiakAlaska_ES-ES6523773825_UHD.jpg) 
