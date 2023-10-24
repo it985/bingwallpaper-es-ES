@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-25 | [Álamos en el Monumento Nacional Grand Staircase-Escalante, Utah, EE.UU. (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_ES-ES4652634549_UHD.jpg) 
+
 2023-10-24 | [Castillo de Füzér en las montañas de Zemplén, Hungría (© ZGPhotography/Alamy)](https://global.bing.com/th?id=OHR.FuzerCastle_ES-ES4372669448_UHD.jpg) 
 
 2023-10-23 | [Laberinto de maíz en Saylorsburg, Pensilvania, EE.UU. (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_ES-ES3975225745_UHD.jpg) 
