@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-26 | [Bosque otoñal en el parque del palacio de Schönbrunn, Viena, Austria (© rusm/Getty Images)](https://global.bing.com/th?id=OHR.ViennaAutumn_ES-ES4797164251_UHD.jpg) 
+
 2023-10-25 | [Álamos en el Monumento Nacional Grand Staircase-Escalante, Utah, EE.UU. (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_ES-ES4652634549_UHD.jpg) 
 
 2023-10-24 | [Castillo de Füzér en las montañas de Zemplén, Hungría (© ZGPhotography/Alamy)](https://global.bing.com/th?id=OHR.FuzerCastle_ES-ES4372669448_UHD.jpg) 
