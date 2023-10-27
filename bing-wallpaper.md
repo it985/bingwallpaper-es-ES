@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-28 | [Arco de San Miguel de Mazarreros, Sasamón, Burgos, España (© Stock photo/Getty Images)](https://global.bing.com/th?id=OHR.EclipseLunar_ES-ES8609710633_UHD.jpg) 
+
 2023-10-27 | [Puente viejo de Sligachan, Isla de Skye, Escocia (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.OldBridgeSkye_ES-ES9518252617_UHD.jpg) 
 
 2023-10-26 | [Bosque otoñal en el parque del palacio de Schönbrunn, Viena, Austria (© rusm/Getty Images)](https://global.bing.com/th?id=OHR.ViennaAutumn_ES-ES4797164251_UHD.jpg) 
