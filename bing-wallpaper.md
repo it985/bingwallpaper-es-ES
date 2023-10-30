@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-30 | [Cuervo común sentado en una rama (© WildMedia/Shutterstock)](https://global.bing.com/th?id=OHR.AutumnRaven_ES-ES0937725332_UHD.jpg) 
+
 2023-10-29 | [Cementerio Bonaventure, Savannah, Georgia, EE.UU. (© Kelly vanDellen/Alamy)](https://global.bing.com/th?id=OHR.SavannahSculpture_ES-ES0759483028_UHD.jpg) 
 
 2023-10-28 | [Arco de San Miguel de Mazarreros, Sasamón, Burgos, España (© Stock photo/Getty Images)](https://global.bing.com/th?id=OHR.EclipseLunar_ES-ES8609710633_UHD.jpg) 
