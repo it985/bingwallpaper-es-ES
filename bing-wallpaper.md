@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-02 | [Cuenca Badwater, Parque Nacional del Valle de la Muerte, California, EE.UU. (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DeathValleySalt_ES-ES2481603921_UHD.jpg) 
+
 2023-11-01 | [Castillo de Haut-Barr, región de Saverne, Vosgos, Francia (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.HautBarr_ES-ES1346703864_UHD.jpg) 
 
 2023-10-31 | [Farolillos de Halloween en un porche (© Bing Image Creator)](https://global.bing.com/th?id=OHR.HalloweenPorchAI_ES-ES1106501127_UHD.jpg) 
