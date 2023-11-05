@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-05 | [Formación de cuarcita, Playa del Silencio, Asturias, España (© Jean-Philippe Delobelle/Minden Pictures)](https://global.bing.com/th?id=OHR.SilencioSpain_ES-ES5057202656_UHD.jpg) 
+
 2023-11-04 | [Bisonte americano, Parque Nacional de Yellowstone, Wyoming, EE.UU. (© Gary Gray/Getty Images)](https://global.bing.com/th?id=OHR.BisonSnow_ES-ES4930036956_UHD.jpg) 
 
 2023-11-03 | [Medusa ortiga del Pacífico frente a la costa de Carmel, California, EE.UU. (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SeaNettles_ES-ES4565377458_UHD.jpg) 
