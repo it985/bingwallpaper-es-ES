@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-08 | [Madre y cría de manatí antillano, Crystal River, Three Sisters Spring, Florida, EE.UU. (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ManateeMama_ES-ES5502378274_UHD.jpg) 
+
 2023-11-07 | [Lagos y Torre de observación de Kirkilai, Parque Regional de Biržai, Lituania (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.KirkilaiTower_ES-ES5139930867_UHD.jpg) 
 
 2023-11-06 | [Lago Pehoé, Parque Nacional Torres del Paine, sur de Chile (© OST/Getty Images)](https://global.bing.com/th?id=OHR.LagoPehoe_ES-ES5224775398_UHD.jpg) 
