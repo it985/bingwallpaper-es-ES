@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-09 | [Abedules en otoño, Drammen, Noruega (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBirch_ES-ES5601632512_UHD.jpg) 
+
 2023-11-08 | [Madre y cría de manatí antillano, Crystal River, Three Sisters Spring, Florida, EE.UU. (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ManateeMama_ES-ES5502378274_UHD.jpg) 
 
 2023-11-07 | [Lagos y Torre de observación de Kirkilai, Parque Regional de Biržai, Lituania (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.KirkilaiTower_ES-ES5139930867_UHD.jpg) 
