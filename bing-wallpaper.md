@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-10 | [Parque Nacional de Badlands, Dakota del Sur, EE.UU. (© Grant Ordelheide/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BadlandsSunrise_ES-ES5802974564_UHD.jpg) 
+
 2023-11-09 | [Abedules en otoño, Drammen, Noruega (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBirch_ES-ES5601632512_UHD.jpg) 
 
 2023-11-08 | [Madre y cría de manatí antillano, Crystal River, Three Sisters Spring, Florida, EE.UU. (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ManateeMama_ES-ES5502378274_UHD.jpg) 
