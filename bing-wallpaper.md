@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-12 | [Lámparas a orillas del río Sarayu en Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_ES-ES6190510977_UHD.jpg) 
+
 2023-11-11 | [Pueblo de Sotres en los Picos de Europa, Asturias, España (© Daniel Candal/stock photo/Moment)](https://global.bing.com/th?id=OHR.SanMartinDay_ES-ES6061572748_UHD.jpg) 
 
 2023-11-10 | [Parque Nacional de Badlands, Dakota del Sur, EE.UU. (© Grant Ordelheide/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BadlandsSunrise_ES-ES5802974564_UHD.jpg) 
