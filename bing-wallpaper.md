@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-16 | [Platja des Coll Baix en Mallorca, Islas Baleares, España (© Stefan Hefele/Mauritius Images/Offset by Shutterstock)](https://global.bing.com/th?id=OHR.FiestaInca_ES-ES6946729543_UHD.jpg) 
+
 2023-11-15 | [Parque Nacional de Sarek, Suecia (© Hans Strand/Getty Images)](https://global.bing.com/th?id=OHR.SarekSweden_ES-ES2887332794_UHD.jpg) 
 
 2023-11-14 | [Lupinos a orillas del lago Tekapo, Isla Sur, Nueva Zelanda (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.RussellLupines_ES-ES6454980527_UHD.jpg) 
