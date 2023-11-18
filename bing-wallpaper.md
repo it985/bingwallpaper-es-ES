@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-18 | [Madre y crías de oso polar, Churchill, Manitoba, Canadá (© Thorsten Milse/Getty Images)](https://global.bing.com/th?id=OHR.MilsePolarBear_ES-ES4207753290_UHD.jpg) 
+
 2023-11-17 | [Río Bad en el Parque Estatal de Copper Falls, Wisconsin, EE.UU. (© Big Joe/Getty Images)](https://global.bing.com/th?id=OHR.BadRiver_ES-ES4057697814_UHD.jpg) 
 
 2023-11-16 | [Platja des Coll Baix en Mallorca, Islas Baleares, España (© Stefan Hefele/Mauritius Images/Offset by Shutterstock)](https://global.bing.com/th?id=OHR.FiestaInca_ES-ES6946729543_UHD.jpg) 
