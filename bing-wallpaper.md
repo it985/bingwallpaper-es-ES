@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-23 | [Parque Nacional del Teide, Santa Cruz de Tenerife, España (© Javier Martínez Morán/Alamy)](https://global.bing.com/th?id=OHR.TeideNational_ES-ES5257401293_UHD.jpg) 
+
 2023-11-22 | [Parque Nacional Grand Teton, Wyoming, EE.UU. (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.SnakeRiverTeton_ES-ES4974142352_UHD.jpg) 
 
 2023-11-21 | [Cría de foca gris en la playa de Norfolk, Inglaterra (© Vince Burton/Minden Pictures)](https://global.bing.com/th?id=OHR.HelloSeal_ES-ES4783412080_UHD.jpg) 
