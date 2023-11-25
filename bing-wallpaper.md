@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-25 | [Toledo, España (© Carlos Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.TajoRiver_ES-ES5973247580_UHD.jpg) 
+
 2023-11-24 | [Lago de Puigcerdá, Gerona, Cataluña, España (© Eloi Omella/Getty Images)](https://global.bing.com/th?id=OHR.SemanaReduccionResiduos_ES-ES5790884875_UHD.jpg) 
 
 2023-11-23 | [Parque Nacional del Teide, Santa Cruz de Tenerife, España (© Javier Martínez Morán/Alamy)](https://global.bing.com/th?id=OHR.TeideNational_ES-ES5257401293_UHD.jpg) 
