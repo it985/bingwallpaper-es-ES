@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-29 | [Árbol de Navidad del Rockefeller Center, Nueva York, EE.UU. (© Jonathan Orenstein/Getty Images)](https://global.bing.com/th?id=OHR.TreeLighting_ES-ES6521457922_UHD.jpg) 
+
 2023-11-28 | [Fresco gigante del artista Saype en Estambul, Turquía (© Chris McGrath/Getty Images)](https://global.bing.com/th?id=OHR.HumanKindness_ES-ES6358639283_UHD.jpg) 
 
 2023-11-27 | [Río Negro, cuenca del Amazonas, Brasil (© Timothy Allen/Getty Images)](https://global.bing.com/th?id=OHR.RioNegro_ES-ES6222339808_UHD.jpg) 
