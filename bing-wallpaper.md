@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-02 | [Puerta Norte de Angkor Thom, Parque Arqueológico de Angkor, Camboya (© Amazing Travel Lifestyle/Shutterstock)](https://global.bing.com/th?id=OHR.AngkorPark_ES-ES7800966681_UHD.jpg) 
+
 2023-12-01 | [Pradollano, Parque Nacional de Sierra Nevada, Granada, Andalucía, España (© iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.SierraNevadaGranada_ES-ES5604012292_UHD.jpg) 
 
 2023-11-30 | [El Storr, un afloramiento rocoso en la isla de Skye, Escocia, Reino Unido (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.TrotternishStorr_ES-ES6640552170_UHD.jpg) 
