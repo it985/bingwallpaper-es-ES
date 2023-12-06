@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-06 | [Congreso de los diputados, Madrid, España (© Serge Mouraret/Alamy Foto de stock)](https://global.bing.com/th?id=OHR.DiaConstitucion_ES-ES6067761704_UHD.jpg) 
+
 2023-12-05 | [Castillos de Neuschwanstein y Hohenschwangau, Alpes bávaros, Alemania (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.AlpsCastles_ES-ES0525825978_UHD.jpg) 
 
 2023-12-04 | [Un guepardo madre y sus cachorros en la Reserva Nacional de Masai Mara, Kenia (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CheetahDay_ES-ES3203875908_UHD.jpg) 
