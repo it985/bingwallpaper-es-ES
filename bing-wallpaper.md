@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-07 | [Una mañana de niebla en las gargantas del Verdon, en los Alpes de Alta Provenza, Francia (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_ES-ES4353910010_UHD.jpg) 
+
 2023-12-06 | [Congreso de los diputados, Madrid, España (© Serge Mouraret/Alamy Foto de stock)](https://global.bing.com/th?id=OHR.DiaConstitucion_ES-ES6067761704_UHD.jpg) 
 
 2023-12-05 | [Castillos de Neuschwanstein y Hohenschwangau, Alpes bávaros, Alemania (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.AlpsCastles_ES-ES0525825978_UHD.jpg) 
