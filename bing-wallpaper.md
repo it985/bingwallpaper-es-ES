@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-11 | [Invierno en las montañas de Huangshan, China (© Hung Chung Chih/Shutterstock)](https://global.bing.com/th?id=OHR.MountainDayChina_ES-ES0104105727_UHD.jpg) 
+
 2023-12-10 | [Últimos rayos de sol sobre un grupo de dunas, Sáhara, Argelia (© AWL Images/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SaharaDunes_ES-ES5018371506_UHD.jpg) 
 
 2023-12-09 | [Guanacos, Parque Nacional Los Glaciares, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.PatagoniaGuanaco_ES-ES4871228557_UHD.jpg) 
