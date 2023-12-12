@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-12 | [Flor de Pascua roja (© Yarygin/Getty Images)](https://global.bing.com/th?id=OHR.Poinsettia_ES-ES5279061856_UHD.jpg) 
+
 2023-12-11 | [Invierno en las montañas de Huangshan, China (© Hung Chung Chih/Shutterstock)](https://global.bing.com/th?id=OHR.MountainDayChina_ES-ES0104105727_UHD.jpg) 
 
 2023-12-10 | [Últimos rayos de sol sobre un grupo de dunas, Sáhara, Argelia (© AWL Images/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SaharaDunes_ES-ES5018371506_UHD.jpg) 
