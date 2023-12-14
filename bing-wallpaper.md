@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-14 | [Búho boreal, Saskatchewan, Canadá (© Nick Saunders/Minden Pictures)](https://global.bing.com/th?id=OHR.BorealOwl_ES-ES9940337262_UHD.jpg) 
+
 2023-12-13 | [Cabañas de pesca tradicionales, Svolvaer, Islas Lofoten, Noruega (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.LofotenRorbu_ES-ES5389345078_UHD.jpg) 
 
 2023-12-12 | [Flor de Pascua roja (© Yarygin/Getty Images)](https://global.bing.com/th?id=OHR.Poinsettia_ES-ES5279061856_UHD.jpg) 
