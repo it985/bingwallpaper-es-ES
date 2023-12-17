@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-17 | [Ampelis europeo posada en una rama, Canadá (© Jim Cumming/Shutterstock)](https://global.bing.com/th?id=OHR.WinterWaxwings_ES-ES2516028661_UHD.jpg) 
+
 2023-12-16 | [Casas Gremiales de la Grand-Place, Bruselas, Bélgica (© Richard Taylor/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.GrandPlaceXmas_ES-ES2402911083_UHD.jpg) 
 
 2023-12-15 | [Parque de Santa Claus en Rovaniemi, Laponia, Finlandia (© lukutin77/Getty Images)](https://global.bing.com/th?id=OHR.SantaPark_ES-ES1775631224_UHD.jpg) 
