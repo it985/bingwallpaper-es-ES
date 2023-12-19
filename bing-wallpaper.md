@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-19 | [Árbol de Navidad en la Plaza del Castillo, Varsovia, Polonia (© Panther Media GmbH/Alamy)](https://global.bing.com/th?id=OHR.WarsawChristmas_ES-ES2780904824_UHD.jpg) 
+
 2023-12-18 | [Parque Nacional de Capitol Reef, Utah, EE.UU. (© Jeff Clay/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CapitolReefSnow_ES-ES2636355852_UHD.jpg) 
 
 2023-12-17 | [Ampelis europeo posada en una rama, Canadá (© Jim Cumming/Shutterstock)](https://global.bing.com/th?id=OHR.WinterWaxwings_ES-ES2516028661_UHD.jpg) 
