@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-25 | [Renos corriendo en la nieve, Alaska, EE.UU. (© Michael Quinton/Minden Pictures)](https://global.bing.com/th?id=OHR.CaribouChristmas_ES-ES3276202379_UHD.jpg) 
+
 2023-12-24 | [XII Carrera Solidaria de Papá Noel en Madrid, España (© Marcos del Mazo/Alamy Foto de stock)](https://global.bing.com/th?id=OHR.SantaClausRace_ES-ES7942033287_UHD.jpg) 
 
 2023-12-23 | [Pingüinos barbijo, Islas Sandwich del Sur, Océano Atlántico Sur (© Jan Vermeer/Minden Pictures)](https://global.bing.com/th?id=OHR.FestivusPenguins_ES-ES4832122757_UHD.jpg) 
