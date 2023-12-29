@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-29 | [Barrio de Oud-West, Ámsterdam, Países Bajos (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.BlueAmsterdam_ES-ES6291079085_UHD.jpg) 
+
 2023-12-28 | [Ballena jorobada, bahía de Disko, Groenlandia (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_ES-ES6074840810_UHD.jpg) 
 
 2023-12-27 | [Kirkjufell, península de Snæfellsnes, Islandia (© Ratnakorn Piyasirisorost/Getty Images)](https://global.bing.com/th?id=OHR.KirkjufellAurora_ES-ES5949558087_UHD.jpg) 
