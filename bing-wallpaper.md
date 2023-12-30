@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-30 | [Puente sobre el río Daiichi Tadami, Fukushima, Japón (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.TadamiWinter_ES-ES7930493260_UHD.jpg) 
+
 2023-12-29 | [Barrio de Oud-West, Ámsterdam, Países Bajos (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.BlueAmsterdam_ES-ES6291079085_UHD.jpg) 
 
 2023-12-28 | [Ballena jorobada, bahía de Disko, Groenlandia (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_ES-ES6074840810_UHD.jpg) 
