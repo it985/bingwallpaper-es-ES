@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-01 | [Zorro rojo durmiendo en la nieve, Abruzzo, Italia (© marco vancini/500px/Getty Images)](https://global.bing.com/th?id=OHR.SleepingFox_ES-ES8416762367_UHD.jpg) 
+
 2023-12-31 | [Año Nuevo en la Puerta del Sol, Madrid, España (© ADDICTIVE STOCK CREATIVES/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SpainNewYear_ES-ES8250941524_UHD.jpg) 
 
 2023-12-30 | [Puente sobre el río Daiichi Tadami, Fukushima, Japón (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.TadamiWinter_ES-ES7930493260_UHD.jpg) 
