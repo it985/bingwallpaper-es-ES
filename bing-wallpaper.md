@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-08 | [Esquiador en el paso de Bernina, Graubunden, Suiza (© Francesco Bergamaschi/Getty Images)](https://global.bing.com/th?id=OHR.BerninaPass_ES-ES9729899080_UHD.jpg) 
+
 2024-01-07 | [Karlu Karlu/Reserva Natural Devils Marbles, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_ES-ES9592851915_UHD.jpg) 
 
 2024-01-06 | [Pinzón vulgar macho posado en un manzano cangrejo en invierno (© Mark Hamblin/2020VISION/Minden Pictures)](https://global.bing.com/th?id=OHR.CrabappleChaffinch_ES-ES9402342278_UHD.jpg) 
