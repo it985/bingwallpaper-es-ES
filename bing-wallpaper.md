@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-10 | [Escaleras en la costa de Mylopotamos, Tesalia, Grecia (© Orestis Zoumpos/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.MilopotamosStairs_ES-ES9277675627_UHD.jpg) 
+
 2024-01-09 | [Globos aerostáticos sobre el Río Grande, Albuquerque, Nuevo México, EE.UU. (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_ES-ES6385510449_UHD.jpg) 
 
 2024-01-08 | [Esquiador en el paso de Bernina, Graubunden, Suiza (© Francesco Bergamaschi/Getty Images)](https://global.bing.com/th?id=OHR.BerninaPass_ES-ES9729899080_UHD.jpg) 
