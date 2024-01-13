@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-13 | [Carretera a Hana, Maui, Hawai, EE.UU. (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.HanaHighway_ES-ES1267688219_UHD.jpg) 
+
 2024-01-12 | [Imagen aérea de La Sargrada Familia, Barcelona, España (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.FestaMajorBarcelona_ES-ES2068839332_UHD.jpg) 
 
 2024-01-11 | [Lince euroasiático en la nieve (© Jan Stria/Shutterstock)](https://global.bing.com/th?id=OHR.LynxSnow_ES-ES0115513442_UHD.jpg) 
