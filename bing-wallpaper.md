@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-16 | [Lago Louise, Parque Nacional de Banff, Alberta, Canadá (© Mr. Simon Paul/Shutterstock)](https://global.bing.com/th?id=OHR.LakeLouise_ES-ES1691998822_UHD.jpg) 
+
 2024-01-15 | [La Eiskapelle (Capilla de Hielo) al pie de la montaña Watzmann, Baviera, Alemania (© Christian Bäck/eStock Photo)](https://global.bing.com/th?id=OHR.IceChapel_ES-ES1557442050_UHD.jpg) 
 
 2024-01-14 | [Cisnes cantores en el lago Kussharo, Japón (© Darrell Gulin/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.HokkaidoSwans_ES-ES1414604730_UHD.jpg) 
