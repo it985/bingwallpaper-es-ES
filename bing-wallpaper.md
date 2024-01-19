@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-19 | [Parque Nacional de los Lagos de Plitvice, Croacia (© Massimo_S8/Getty Images)](https://global.bing.com/th?id=OHR.PlitviceWinter_ES-ES1965080924_UHD.jpg) 
+
 2024-01-18 | [Exploradores en un lago helado, Estany de Colomina, Lérida, Cataluña, España (© Manu Prats/Stocksy)](https://global.bing.com/th?id=OHR.EstanyColomina_ES-ES2289553231_UHD.jpg) 
 
 2024-01-17 | [Lobo dormido en el Parque Nacional del Bosque Bávaro, Alemania (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.SleepyWolf_ES-ES1847599512_UHD.jpg) 
