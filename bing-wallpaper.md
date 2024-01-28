@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-28 | [Catedral de Burgos, Burgos, España (© Marco Bottigelli/Moment/Getty Images)](https://global.bing.com/th?id=OHR.SanLesmesBurgos_ES-ES5995468445_UHD.jpg) 
+
 2024-01-27 | [Palacio de Hielo en el Carnaval de Invierno de St. Paul, Minnesota, EE.UU. (© Joe Mamer Photography/Alamy)](https://global.bing.com/th?id=OHR.WinterCarnival_ES-ES4102228000_UHD.jpg) 
 
 2024-01-26 | [Búho gavilán (© Remo Savisaar/Alamy)](https://global.bing.com/th?id=OHR.HawkOwl_ES-ES0489194970_UHD.jpg) 
