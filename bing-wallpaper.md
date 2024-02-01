@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-01 | [Faro de Sassnitz en la isla de Rügen, Alemania (© Christian Back/eStock)](https://global.bing.com/th?id=OHR.HalbinselJasmund_ES-ES6725793206_UHD.jpg) 
+
 2024-01-31 | [Madre y potro de cebra de Burchell, Reserva Natural de Rietvlei, Sudáfrica (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraMother_ES-ES6542218245_UHD.jpg) 
 
 2024-01-30 | [Ayna, Sierra de Segura, Albacete, España (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.AlbaceteSpain_ES-ES6264558269_UHD.jpg) 
