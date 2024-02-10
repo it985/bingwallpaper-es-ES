@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-10 | [Año Nuevo Chino, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://global.bing.com/th?id=OHR.ChinaDragon_ES-ES6591533646_UHD.jpg) 
+
 2024-02-09 | [Vista del faro de Ribadeo, Galicia, España (© Stas Moroz/Shutterstock)](https://global.bing.com/th?id=OHR.Ribadeo_ES-ES6070191561_UHD.jpg) 
 
 2024-02-08 | [Monte Hood, Oregón, EE.UU. (© Inigo Cia/Getty Images)](https://global.bing.com/th?id=OHR.MtHoodOregon_ES-ES8487119175_UHD.jpg) 
