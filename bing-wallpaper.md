@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-11 | [Chora, Isla de Folegandros, Cícladas, Grecia (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.FolegandrosGreece_ES-ES0493333315_UHD.jpg) 
+
 2024-02-10 | [Año Nuevo Chino, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://global.bing.com/th?id=OHR.ChinaDragon_ES-ES6591533646_UHD.jpg) 
 
 2024-02-09 | [Vista del faro de Ribadeo, Galicia, España (© Stas Moroz/Shutterstock)](https://global.bing.com/th?id=OHR.Ribadeo_ES-ES6070191561_UHD.jpg) 
