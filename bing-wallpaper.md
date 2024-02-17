@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-17 | [Casas de colores en Punta Brava, Puerto de la Cruz, Tenerife, España (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.CarnavalTenerife_ES-ES6332745599_UHD.jpg) 
+
 2024-02-16 | [Una hembra de pyrrhuloxia se posa en un cactus espinoso en Texas, EE.UU. (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_ES-ES5058549868_UHD.jpg) 
 
 2024-02-15 | [Madre y cría de hipopótamo, Parque Nacional de South Luangwa, Zambia (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.HippopotamusDay_ES-ES1187827553_UHD.jpg) 
