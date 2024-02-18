@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-18 | [Manada de cachalotes saliendo a la superficie, Dominica (© Franco Banfi/Minden Pictures)](https://global.bing.com/th?id=OHR.DominicaWhales_ES-ES1609036579_UHD.jpg) 
+
 2024-02-17 | [Casas de colores en Punta Brava, Puerto de la Cruz, Tenerife, España (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.CarnavalTenerife_ES-ES6332745599_UHD.jpg) 
 
 2024-02-16 | [Una hembra de pyrrhuloxia se posa en un cactus espinoso en Texas, EE.UU. (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_ES-ES5058549868_UHD.jpg) 
