@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-20 | [Kinder Scout al amanecer, Parque Nacional de Peak District, Reino Unido (© john finney photography/Getty Images)](https://global.bing.com/th?id=OHR.PeakDistrictNP_ES-ES1714203483_UHD.jpg) 
+
 2024-02-19 | [El Pragser Wildsee en los Dolomitas, Tirol del Sur, Italia (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.LakeDolomites_ES-ES6192174568_UHD.jpg) 
 
 2024-02-18 | [Manada de cachalotes saliendo a la superficie, Dominica (© Franco Banfi/Minden Pictures)](https://global.bing.com/th?id=OHR.DominicaWhales_ES-ES1609036579_UHD.jpg) 
