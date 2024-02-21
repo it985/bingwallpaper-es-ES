@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-21 | [Cascada de fuego en Horsetail Fall, Parque Nacional de Yosemite, California, EE.UU. (© Gregory B Cuvelier/Shutterstock)](https://global.bing.com/th?id=OHR.YosemiteFirefall_ES-ES1887496607_UHD.jpg) 
+
 2024-02-20 | [Kinder Scout al amanecer, Parque Nacional de Peak District, Reino Unido (© john finney photography/Getty Images)](https://global.bing.com/th?id=OHR.PeakDistrictNP_ES-ES1714203483_UHD.jpg) 
 
 2024-02-19 | [El Pragser Wildsee en los Dolomitas, Tirol del Sur, Italia (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.LakeDolomites_ES-ES6192174568_UHD.jpg) 
