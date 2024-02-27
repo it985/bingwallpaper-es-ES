@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-27 | [Cachorros de oso polar jugando, Kaktovik, Alaska, EE.UU. (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.PolarBearCubs_ES-ES1868103985_UHD.jpg) 
+
 2024-02-26 | [Parque Nacional del Gran Cañón, Arizona, EE.UU. (© Jeremy Janus/Getty Images)](https://global.bing.com/th?id=OHR.GrandCanyonWinter_ES-ES1684306340_UHD.jpg) 
 
 2024-02-25 | [Niebla en el valle de Cowichan, en la isla de Vancouver, Columbia Británica, Canadá (© Kevin Oke/Alamy)](https://global.bing.com/th?id=OHR.MtPrevostDuncan_ES-ES1488593633_UHD.jpg) 
