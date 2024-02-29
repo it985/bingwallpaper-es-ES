@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-29 | [Ardilla roja euroasiática (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.LeapingSquirrel_ES-ES2689500178_UHD.jpg) 
+
 2024-02-28 | [Plaza de España, Sevilla, España (© KavalenkavaVolha/Getty images)](https://global.bing.com/th?id=OHR.SevilleAndalusiaDay_ES-ES5223382941_UHD.jpg) 
 
 2024-02-27 | [Cachorros de oso polar jugando, Kaktovik, Alaska, EE.UU. (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.PolarBearCubs_ES-ES1868103985_UHD.jpg) 
