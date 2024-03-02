@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-02 | [Modica, Sicilia, Italia (© Sandro Bisaro/Getty Images)](https://global.bing.com/th?id=OHR.ModicaItaly_ES-ES5949854185_UHD.jpg) 
+
 2024-03-01 | [Málaga, Andalucía, España (© Manfred Gottschalk/Getty Images)](https://global.bing.com/th?id=OHR.FilmFestivalMalaga_ES-ES1114429111_UHD.jpg) 
 
 2024-02-29 | [Ardilla roja euroasiática (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.LeapingSquirrel_ES-ES2689500178_UHD.jpg) 
