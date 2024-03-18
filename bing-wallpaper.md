@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-18 | [Roca del Elefante, Al-Ula, Arabia Saudí (© Lubo Ivanko/Shutterstock)](https://global.bing.com/th?id=OHR.ElephantRock_ES-ES8654521374_UHD.jpg) 
+
 2024-03-17 | [St. Finian's Bay, Condado de Kerry, Irlanda (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.StFiniansBay_ES-ES8366850024_UHD.jpg) 
 
 2024-03-16 | [Panda gigante comiendo bambú, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_ES-ES8233000547_UHD.jpg) 
