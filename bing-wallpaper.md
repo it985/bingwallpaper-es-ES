@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-26 | [Cascadas de agua de mar sobre un antiguo arrecife de coral, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.HangRaiVietnam_ES-ES8273650345_UHD.jpg) 
+
 2024-03-25 | [Devotos hindúes juegan con polvos de colores durante Holi, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://global.bing.com/th?id=OHR.ColorfulHoli_ES-ES7983447833_UHD.jpg) 
 
 2024-03-24 | [Anteojitos dorsigrís en una rama de cerezo en flor, Corea del Sur (© TigerSeo/Getty Images)](https://global.bing.com/th?id=OHR.WhiteEyes_ES-ES7879462917_UHD.jpg) 
