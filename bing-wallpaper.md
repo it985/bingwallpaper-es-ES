@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-02 | [Hayas y anémonas silvestres, Jutlandia, Dinamarca (© Nick Brundle Photography/Getty Images)](https://global.bing.com/th?id=OHR.JutlandSpring_ES-ES9886348843_UHD.jpg) 
+
 2024-04-01 | [Obra del artista JR, "Vanishing Point", en la fachada del Palacio Farnesio de Roma, Italia (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_ES-ES9713992360_UHD.jpg) 
 
 2024-03-30 | [Reloj mecánico del edificio San Jacinto, Beaumont, Texas, EE.UU. (© Richard T. Nowitz/Getty Images)](https://global.bing.com/th?id=OHR.BeaumontClock_ES-ES6311174961_UHD.jpg) 
