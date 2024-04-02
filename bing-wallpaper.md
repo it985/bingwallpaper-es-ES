@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-03 | [Un arco iris en el distrito de At-Bashy, montañas de Kakshaal Too, provincia de Naryn, Kirguistán (© Emad aljumah/Getty Images)](https://global.bing.com/th?id=OHR.KyrgyzstanRainbow_ES-ES0679850164_UHD.jpg) 
+
 2024-04-02 | [Hayas y anémonas silvestres, Jutlandia, Dinamarca (© Nick Brundle Photography/Getty Images)](https://global.bing.com/th?id=OHR.JutlandSpring_ES-ES9886348843_UHD.jpg) 
 
 2024-04-01 | [Obra del artista JR, "Vanishing Point", en la fachada del Palacio Farnesio de Roma, Italia (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_ES-ES9713992360_UHD.jpg) 
