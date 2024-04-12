@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-13 | [Manzanos en primavera, Alemania (© Smileus/Getty Images)](https://global.bing.com/th?id=OHR.SpringApple_ES-ES7671231855_UHD.jpg) 
+
 2024-04-12 | [Luz del atardecer en el Parque Nacional de Arches, Utah, EE.UU. (© Anthony Heflin/Shutterstock)](https://global.bing.com/th?id=OHR.SunsetArchesNP_ES-ES7566145703_UHD.jpg) 
 
 2024-04-11 | [Vista aérea del salto Churún-Merú (Salto Dragón), Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.DragonWaterfall_ES-ES7444409826_UHD.jpg) 
