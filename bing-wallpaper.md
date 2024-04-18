@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-19 | [El Anillo de Brodgar, Orcadas, Escocia (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.OrkneyStones_ES-ES1176985734_UHD.jpg) 
+
 2024-04-18 | [Murallas medievales, Ávila, España (© Alberto Loyo/Getty Images)](https://global.bing.com/th?id=OHR.AvilaSpain_ES-ES9451845380_UHD.jpg) 
 
 2024-04-17 | [Osezno negro americano en primavera, Parque Nacional de Shenandoah, Virginia, EE.UU. (© Scott Suriano/Getty Images)](https://global.bing.com/th?id=OHR.SpringCub_ES-ES9139534985_UHD.jpg) 
