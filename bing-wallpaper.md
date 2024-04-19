@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-20 | [Gran Fuente Prismática al amanecer, Parque Nacional de Yellowstone, Wyoming, EE.UU. (© XIN WANG/Getty Images)](https://global.bing.com/th?id=OHR.YellowstoneGeyser_ES-ES1324165406_UHD.jpg) 
+
 2024-04-19 | [El Anillo de Brodgar, Orcadas, Escocia (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.OrkneyStones_ES-ES1176985734_UHD.jpg) 
 
 2024-04-18 | [Murallas medievales, Ávila, España (© Alberto Loyo/Getty Images)](https://global.bing.com/th?id=OHR.AvilaSpain_ES-ES9451845380_UHD.jpg) 
