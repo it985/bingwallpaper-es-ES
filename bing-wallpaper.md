@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-23 | [Pueblo medieval de Albarracín al amanecer, Teruel, Aragón, España (© Domingo Leiva/Getty Images)](https://global.bing.com/th?id=OHR.AragonDay_ES-ES4026437518_UHD.jpg) 
+
 2024-04-22 | [Tortuga verde marina, San Diego, California, EE.UU. (© Ralph Pace/Minden Pictures)](https://global.bing.com/th?id=OHR.EarthDayTurtle_ES-ES1732756969_UHD.jpg) 
 
 2024-04-21 | [Sparks Lane en Cades Cove, Parque Nacional de las Grandes Montañas Humeantes, Tennessee, EE.UU. (© Richard Bernabe/Shutterstock)](https://global.bing.com/th?id=OHR.CadesCove_ES-ES1523935320_UHD.jpg) 
