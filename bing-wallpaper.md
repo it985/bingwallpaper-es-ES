@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-25 | [Pingüinos Adelia sobre un iceberg, Antártida (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.PenguinDirections_ES-ES2470115547_UHD.jpg) 
+
 2024-04-24 | [Trillium blanco en flor en Ontario, Canadá (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_ES-ES4860531409_UHD.jpg) 
 
 2024-04-23 | [Pueblo medieval de Albarracín al amanecer, Teruel, Aragón, España (© Domingo Leiva/Getty Images)](https://global.bing.com/th?id=OHR.AragonDay_ES-ES4026437518_UHD.jpg) 
