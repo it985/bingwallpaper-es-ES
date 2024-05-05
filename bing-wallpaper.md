@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-06 | [Heidelberg a orillas del río Neckar, en Baden-Wurtemberg, Alemania (© Juergen Sack/Getty Images)](https://global.bing.com/th?id=OHR.RiverNekarHeidelberg_ES-ES3292625362_UHD.jpg) 
+
 2024-05-05 | [Hembra de guanaco y cría recién nacida en pastizal, provincia de La Pampa, Argentina (© Gabriel Rojo/Minden Pictures)](https://global.bing.com/th?id=OHR.GuanacoMother_ES-ES1631881267_UHD.jpg) 
 
 2024-05-04 | [Las ruinas de un antiguo monasterio en la isla de Skellig Michael, Irlanda (© MNStudio/Getty Images)](https://global.bing.com/th?id=OHR.JediMonastery_ES-ES3031274198_UHD.jpg) 
