@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-22 | [Eucalipto de nieve de Tasmania (Eucalyptus coccifera), Parque Nacional de Mount Field, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.SnowGumTasmania_ES-ES5020122004_UHD.jpg) 
+
 2024-05-21 | [Plantación de té de Cameron Highlands, Malasia (© alex cheong/Getty Images)](https://global.bing.com/th?id=OHR.MalaysiaTea_ES-ES4744673149_UHD.jpg) 
 
 2024-05-20 | [Abeja cuidando un panal (© Simun Ascic/Alamy)](https://global.bing.com/th?id=OHR.HoneycombBee_ES-ES4459802642_UHD.jpg) 
