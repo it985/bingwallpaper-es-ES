@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-26 | [Balsamorhiza y lupinos, Valle de Methow, Cascadas del Norte, Washington, EE.UU. (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.MethowWildflowers_ES-ES5583730186_UHD.jpg) 
+
 2024-05-25 | [Alhambra de Granada, España (© SCStock/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.CorpusChristiGranada_ES-ES5471686703_UHD.jpg) 
 
 2024-05-24 | [Cañón de Añisclo, Parque nacional de Ordesa y Monte Perdido, Huesca, España (© Marisa Estivill/Shutterstock)](https://global.bing.com/th?id=OHR.OrdesaNationalPark_ES-ES5285302452_UHD.jpg) 
