@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-27 | [Baia del Silenzio en Sestri Levante, Liguria, Italia (© StevanZZ/Getty Images)](https://global.bing.com/th?id=OHR.SestriLevante_ES-ES5697216326_UHD.jpg) 
+
 2024-05-26 | [Balsamorhiza y lupinos, Valle de Methow, Cascadas del Norte, Washington, EE.UU. (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.MethowWildflowers_ES-ES5583730186_UHD.jpg) 
 
 2024-05-25 | [Alhambra de Granada, España (© SCStock/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.CorpusChristiGranada_ES-ES5471686703_UHD.jpg) 
