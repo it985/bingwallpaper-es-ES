@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-01 | [Ayuntamiento de San Francisco iluminado con el arcoíris en honor al mes del Orgullo, California, EE.UU. (© Josh Edelson/AFP via Getty Images)](https://global.bing.com/th?id=OHR.PrideMonthSF_ES-ES3579859678_UHD.jpg) 
+
 2024-05-31 | [Gunnerside, Swaledale, Parque Nacional Yorkshire Dales, Reino Unido (© Derek Croucher/Alamy)](https://global.bing.com/th?id=OHR.YorkshireDalesNP_ES-ES3243650071_UHD.jpg) 
 
 2024-05-30 | [Pinos elliotis en el Parque Nacional de los Everglades, Florida, EE.UU. (© Jonathan Gewirtz/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.Everglades90th_ES-ES6056767360_UHD.jpg) 
