@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-02 | [Faro de Ploumanac'h, Costas de Armor, Francia (© Christian Handl/Getty Images)](https://global.bing.com/th?id=OHR.MenRuz_ES-ES3990544497_UHD.jpg) 
+
 2024-06-01 | [Ayuntamiento de San Francisco iluminado con el arcoíris en honor al mes del Orgullo, California, EE.UU. (© Josh Edelson/AFP via Getty Images)](https://global.bing.com/th?id=OHR.PrideMonthSF_ES-ES3579859678_UHD.jpg) 
 
 2024-05-31 | [Gunnerside, Swaledale, Parque Nacional Yorkshire Dales, Reino Unido (© Derek Croucher/Alamy)](https://global.bing.com/th?id=OHR.YorkshireDalesNP_ES-ES3243650071_UHD.jpg) 
