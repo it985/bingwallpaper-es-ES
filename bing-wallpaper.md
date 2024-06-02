@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-03 | [Bicicletas en Copenhague, Dinamarca (© Alphotographic/Getty Images)](https://global.bing.com/th?id=OHR.CopenhagenBicycles_ES-ES4229368591_UHD.jpg) 
+
 2024-06-02 | [Faro de Ploumanac'h, Costas de Armor, Francia (© Christian Handl/Getty Images)](https://global.bing.com/th?id=OHR.MenRuz_ES-ES3990544497_UHD.jpg) 
 
 2024-06-01 | [Ayuntamiento de San Francisco iluminado con el arcoíris en honor al mes del Orgullo, California, EE.UU. (© Josh Edelson/AFP via Getty Images)](https://global.bing.com/th?id=OHR.PrideMonthSF_ES-ES3579859678_UHD.jpg) 
