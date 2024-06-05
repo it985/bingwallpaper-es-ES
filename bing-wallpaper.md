@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-06 | [Parque Nacional del Teide, Tenerife, España (© Santiago Urquijo/Moment/Getty Images)](https://global.bing.com/th?id=OHR.TenerifeBluetrail_ES-ES5009256833_UHD.jpg) 
+
 2024-06-05 | [Parque nacional de Masoala, Madagascar (© Dennis van de Water/Shutterstock)](https://global.bing.com/th?id=OHR.MadagascarRiver_ES-ES4680489964_UHD.jpg) 
 
 2024-06-04 | [Abejaruco Cabecirrufo, Parque Nacional de Bardiya, Nepal (© PACO COMO/Shutterstock)](https://global.bing.com/th?id=OHR.ChestnutBeeEater_ES-ES4472834413_UHD.jpg) 
