@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-07 | [Familia de ballenas jorobadas, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.HumpbackFamily_ES-ES5806856103_UHD.jpg) 
+
 2024-06-06 | [Parque Nacional del Teide, Tenerife, España (© Santiago Urquijo/Moment/Getty Images)](https://global.bing.com/th?id=OHR.TenerifeBluetrail_ES-ES5009256833_UHD.jpg) 
 
 2024-06-05 | [Parque nacional de Masoala, Madagascar (© Dennis van de Water/Shutterstock)](https://global.bing.com/th?id=OHR.MadagascarRiver_ES-ES4680489964_UHD.jpg) 
