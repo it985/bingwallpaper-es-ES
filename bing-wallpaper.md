@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-08 | [Bardenas Reales de Navarra, España (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BardenasBiosphere_ES-ES5583013155_UHD.jpg) 
+
 2024-06-07 | [Familia de ballenas jorobadas, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.HumpbackFamily_ES-ES5806856103_UHD.jpg) 
 
 2024-06-06 | [Parque Nacional del Teide, Tenerife, España (© Santiago Urquijo/Moment/Getty Images)](https://global.bing.com/th?id=OHR.TenerifeBluetrail_ES-ES5009256833_UHD.jpg) 
