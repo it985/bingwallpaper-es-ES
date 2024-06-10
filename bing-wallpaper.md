@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-11 | [Órice del cabo (Gemsbok) en la sabana, Botsuana (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_ES-ES2633873347_UHD.jpg) 
+
 2024-06-10 | [Osaka de noche, Japón (© wichianduangsri/Getty Images)](https://global.bing.com/th?id=OHR.OsakaNight_ES-ES1885531150_UHD.jpg) 
 
 2024-06-09 | [Atardecer en Murcia, España (© Medvedkov/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.RegionMurciaDay_ES-ES1540507455_UHD.jpg) 
