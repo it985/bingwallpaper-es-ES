@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-13 | [Fachada de mosaicos en la Plaza Registán, Samarcanda, Uzbekistán (© da-kuk/Getty Images)](https://global.bing.com/th?id=OHR.RegistanUzbekistan_ES-ES3215569621_UHD.jpg) 
+
 2024-06-12 | [Vía Láctea sobre el Parque Nacional Big Bend, Texas, EE.UU. (© wisanuboonrawd/Adobe Stock)](https://global.bing.com/th?id=OHR.BigBendMilkyWay_ES-ES2997966986_UHD.jpg) 
 
 2024-06-11 | [Órice del cabo (Gemsbok) en la sabana, Botsuana (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_ES-ES2633873347_UHD.jpg) 
