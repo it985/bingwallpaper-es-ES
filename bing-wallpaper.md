@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-20 | [Kokino, antiguo observatorio megalítico, Macedonia del Norte (© stoimilov/Shutterstock)](https://global.bing.com/th?id=OHR.KokinoMacedonia_ES-ES7264523423_UHD.jpg) 
+
 2024-06-19 | [Vista aérea del puerto deportivo de lujo, Puerto Portals, Portals Nous, Mallorca, Islas Baleares, España (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.SuperyachtCupPalma_ES-ES7519747010_UHD.jpg) 
 
 2024-06-18 | [Campos de altramuces e iglesia al amanecer, Península de Snæfellsnes, Islandia (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.LupinIceland_ES-ES4150475711_UHD.jpg) 
