@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-23 | [Cala Macarelleta, Menorca, Islas Baleares, España (© Matteo Colombo/DigitalVision/Getty Images)](https://global.bing.com/th?id=OHR.SanJuanMenorca_ES-ES8672078305_UHD.jpg) 
+
 2024-06-22 | [Selva amazónica, Brasil (© Claus Meyer/plainpicture)](https://global.bing.com/th?id=OHR.BrazilRainforest_ES-ES7948660330_UHD.jpg) 
 
 2024-06-21 | [Jirafa madre reticulada saludando a su cría, Lewa Wildlife Conservancy, Kenia (© Sean Crane/Minden Pictures)](https://global.bing.com/th?id=OHR.LewaGiraffe_ES-ES7726305144_UHD.jpg) 
