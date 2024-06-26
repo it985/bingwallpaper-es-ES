@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-27 | [Duomo Santa Maria del Fiore al atardecer, Florencia, Italia (© Elena Pueyo/Getty Images)](https://global.bing.com/th?id=OHR.FlorenceDuomo_ES-ES9598633460_UHD.jpg) 
+
 2024-06-26 | [Pez cardenal Banggai joven con anémona de mar, Estrecho de Lembeh, Sulawesi Septentrional, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)](https://global.bing.com/th?id=OHR.CardinalfishAnemone_ES-ES9348160649_UHD.jpg) 
 
 2024-06-25 | [Parque Estatal del Valle del Fuego, Nevada, EE.UU. (© Clint Losee/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireWave_ES-ES9125556493_UHD.jpg) 
