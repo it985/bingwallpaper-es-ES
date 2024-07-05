@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-06 | [Castillo de Conwy, Gales (© David Chapman/Alamy)](https://global.bing.com/th?id=OHR.ConwyRiver_ES-ES1249409412_UHD.jpg) 
+
 2024-07-05 | [Playa de Noah, Selva tropical de Daintree, Queensland, Australia (© bjeayes/Getty Images)](https://global.bing.com/th?id=OHR.NoahBeach_ES-ES8857323555_UHD.jpg) 
 
 2024-07-04 | [Zahara de la Sierra, Cádiz, Andalucía, España (© Francesco Carovillano/eStock Photo)](https://global.bing.com/th?id=OHR.ZaharaDeLaSierra_ES-ES8451895973_UHD.jpg) 
