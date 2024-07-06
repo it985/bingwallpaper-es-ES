@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-07 | [Terrazas de arroz de Mù Cang Chải, provincia de Yên Bái, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://global.bing.com/th?id=OHR.YenBaiTerraces_ES-ES1614645936_UHD.jpg) 
+
 2024-07-06 | [Castillo de Conwy, Gales (© David Chapman/Alamy)](https://global.bing.com/th?id=OHR.ConwyRiver_ES-ES1249409412_UHD.jpg) 
 
 2024-07-05 | [Playa de Noah, Selva tropical de Daintree, Queensland, Australia (© bjeayes/Getty Images)](https://global.bing.com/th?id=OHR.NoahBeach_ES-ES8857323555_UHD.jpg) 
