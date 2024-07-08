@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-09 | [Parque Nacional Talampaya, provincia de La Rioja, Argentina (© Gonzalo Azumendi/Getty Images)](https://global.bing.com/th?id=OHR.TalampayaNP_ES-ES2038373529_UHD.jpg) 
+
 2024-07-08 | [Arándanos azules silvestres (© Baac3nes/Getty Images)](https://global.bing.com/th?id=OHR.NorwayBlueberries_ES-ES1837982963_UHD.jpg) 
 
 2024-07-07 | [Terrazas de arroz de Mù Cang Chải, provincia de Yên Bái, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://global.bing.com/th?id=OHR.YenBaiTerraces_ES-ES1614645936_UHD.jpg) 
