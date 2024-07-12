@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-13 | [Chimeneas de hadas y casas-cueva en Capadocia, Turquía (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_ES-ES4124443837_UHD.jpg) 
+
 2024-07-12 | [Flores silvestres en el Parque Nacional del Monte Rainier, Washington, EE.UU. (© RomanKhomlyak/Getty Images)](https://global.bing.com/th?id=OHR.RainierWildflowers_ES-ES3642335933_UHD.jpg) 
 
 2024-07-11 | [Gangi, Sicilia, Italia (© Andrea Caruso/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.GangiSicily_ES-ES2394496656_UHD.jpg) 
