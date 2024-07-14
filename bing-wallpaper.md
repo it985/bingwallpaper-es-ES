@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-15 | [Parque Tateishi, prefectura de Kanagawa, Japón (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_ES-ES5379923028_UHD.jpg) 
+
 2024-07-14 | [Tiburón sedoso en Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SilkyShark_ES-ES4829919734_UHD.jpg) 
 
 2024-07-13 | [Chimeneas de hadas y casas-cueva en Capadocia, Turquía (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_ES-ES4124443837_UHD.jpg) 
