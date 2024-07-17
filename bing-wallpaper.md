@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-18 | [Arrecife de coral en el Océano Índico, Mayotte, Francia (© Gabriel Barathieu/Minden Pictures)](https://global.bing.com/th?id=OHR.MayotteCoral_ES-ES7740312027_UHD.jpg) 
+
 2024-07-17 | [Ciudad medieval de Rothenburg ob der Tauber, Alemania (© kanuman/Getty Images)](https://global.bing.com/th?id=OHR.MedievalRothenburg_ES-ES7422033090_UHD.jpg) 
 
 2024-07-16 | [El asentamiento neolítico de Skara Brae, Orcadas, Escocia (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.AncientOrkney_ES-ES6955943044_UHD.jpg) 
