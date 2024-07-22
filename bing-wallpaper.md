@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-23 | [Castillo de Methoni, Mesenia, Grecia (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_ES-ES0213833516_UHD.jpg) 
+
 2024-07-22 | [Perseidas, Extremadura, España (© Cavan Images/Getty Images)](https://global.bing.com/th?id=OHR.PerseidasExtremadura_ES-ES2162397207_UHD.jpg) 
 
 2024-07-21 | [Barcos de pesca de madera en el pueblo de Kendwa, Zanzíbar, Tanzania (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.ZanzibarBoats_ES-ES9050362882_UHD.jpg) 
