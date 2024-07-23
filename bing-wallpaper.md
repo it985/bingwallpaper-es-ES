@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-24 | [Fiesta de Santiago Apóstol en Galicia, España (© Mlenny/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.SaintJamesGalicia_ES-ES2247735379_UHD.jpg) 
+
 2024-07-23 | [Castillo de Methoni, Mesenia, Grecia (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_ES-ES0213833516_UHD.jpg) 
 
 2024-07-22 | [Perseidas, Extremadura, España (© Cavan Images/Getty Images)](https://global.bing.com/th?id=OHR.PerseidasExtremadura_ES-ES2162397207_UHD.jpg) 
