@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-09 | [Ruinas incas de Sacsayhuamán cerca de Cusco, Perú (© SL_Photography/Getty Images)](https://global.bing.com/th?id=OHR.IncaRuinPeru_ES-ES0427536842_UHD.jpg) 
+
 2024-08-08 | [Mochuelo Brahmán, Bangkok, Tailandia (© Tfilm/Getty Images)](https://global.bing.com/th?id=OHR.SpottedOwlet_ES-ES9381508477_UHD.jpg) 
 
 2024-08-07 | [Luces interiores y exteriores del muelle norte de St. Joseph, Michigan, EE.UU. (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.MichiganLighthouse_ES-ES4793488515_UHD.jpg) 
