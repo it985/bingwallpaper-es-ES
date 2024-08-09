@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-10 | [Parque Nacional Árboles de Josué, California, EE. UU. (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JoshuaTreeNP_ES-ES0806309217_UHD.jpg) 
+
 2024-08-09 | [Ruinas incas de Sacsayhuamán cerca de Cusco, Perú (© SL_Photography/Getty Images)](https://global.bing.com/th?id=OHR.IncaRuinPeru_ES-ES0427536842_UHD.jpg) 
 
 2024-08-08 | [Mochuelo Brahmán, Bangkok, Tailandia (© Tfilm/Getty Images)](https://global.bing.com/th?id=OHR.SpottedOwlet_ES-ES9381508477_UHD.jpg) 
