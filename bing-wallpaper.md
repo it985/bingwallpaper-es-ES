@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-21 | [El piquero de Nazca, Isla Wolf, Islas Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.NazcaBooby_ES-ES8963082511_UHD.jpg) 
+
 2024-08-20 | [Amanecer en el Parque Nacional de Grand Teton, Wyoming, EE. UU. (© Kurt Budliger/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_ES-ES8184610803_UHD.jpg) 
 
 2024-08-19 | [Bufadero de la Garita, Gran Canaria, España (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.RegataSanGines_ES-ES7871203072_UHD.jpg) 
