@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-24 | [Monumento Nacional de los Bosques y Aguas de Katahdin, Condado de Penobscot, Maine, EE. UU. (© Cavan Images/Alamy)](https://global.bing.com/th?id=OHR.KatahdinWoods_ES-ES2494481024_UHD.jpg) 
+
 2024-08-23 | [Ruinas del templo de Prasat Phanom Rung, provincia de Buri Ram, Tailandia (© Banjongseal324/Getty Images)](https://global.bing.com/th?id=OHR.PrasatPhanom_ES-ES2130106694_UHD.jpg) 
 
 2024-08-22 | [Vista aérea de Ocean City al amanecer, Maryland, EE. UU. (© Kevin Olson/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.OceanCityMD_ES-ES9167700401_UHD.jpg) 
